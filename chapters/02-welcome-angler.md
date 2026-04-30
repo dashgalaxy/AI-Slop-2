@@ -18,17 +18,17 @@ Drew stopped too. Mostly because she had stopped, and he was a guest in this cou
 It took him a second to fully register that she was the prettiest girl he had ever seen in person. She had black hair cut into a sharp french bob that swung against her jawline, ears that came to two delicate points where the hair tucked behind them, soft warm cream skin, and eyes the color of garnets, wide as dinner plates and locked on his face like she had just been handed a present and was trying to decide whether to open it now or savor the wrapping. She was wearing blue denim overalls cut so short across the thigh that it took an active effort on Drew's part to keep his eyes pinned to her face, where they belonged, and where, frankly, they wanted to be anyway, because nobody had ever looked at him quite like that before.
 She looked, by Drew's best estimate, twenty-one.
 *Too young for me,* said the part of his brain that was still trying to operate as if normal social rules applied, which under the circumstances was a brave commitment by that part of his brain.
-"You're a human," she said, hands still hovering near her mouth.
+"You're a human," she said, her hands still hovering near her mouth.
 "Uh."
 "You're actually a human." Her hands came down. "I thought I was going to find a goat. Sometimes things wash up. Mostly goats."
 "I'm not a goat," Drew said.
 "No," she agreed, gravely. "You are very much not a goat."
-She took two steps closer, and then a third, and then stopped about five feet away with her hands clasped in front of her overall bib, which was somehow even more devastating than the hands-over-mouth thing had been. Up close her eyes were not quite garnet, more like wine held up to lamplight, and she was looking at him the way a kid looked at the giraffe enclosure on the first really good zoo trip of their life.
+She took two steps closer, then a third, and stopped about five feet away with her hands clasped in front of her overall bib, which was somehow even more devastating than the hands-over-mouth thing had been. Up close her eyes were not quite garnet, more like wine held up to lamplight, and she was looking at him the way a kid looks at the giraffe enclosure on the first really good zoo trip of their life.
 "Can I see your face?" she asked.
 "You are seeing my face," Drew said.
 "I mean closer."
 "I — sure?"
-She closed the distance, reached up on her toes, and peered into his face from about six inches away with an intent, scholarly seriousness that should have felt invasive and somehow did not. She smelled like something herbal he didn't recognize. He held very still, partly because he had no idea what the etiquette was, and partly because he was thirty-one years old and had not been looked at this hard by a woman in he could not remember how long.
+She closed the distance, reached up on her toes, and peered into his face from about six inches away, intently and scholarly serious in a way that should have felt invasive and somehow did not. She smelled like something herbal he didn't recognize. He held very still, partly because he had no idea what the etiquette was, and partly because he was thirty-one years old and had not been looked at this hard by a woman in longer than he could remember.
 "Round pupils," she reported, apparently to herself.
 "Yep," Drew said.
 "No second eyelid."
@@ -118,7 +118,7 @@ Drew, whose brain had been overwhelmed roughly nine times in the past hour and h
 Hazel, who had not previously been holding his shirt, let go of his shirt.
 "I'm going to take him home for an hour," the elder went on. "He needs water, dry clothes, and three sentences he can actually finish. You'll all see him again before sundown." She turned to Mira. "Mira, sweetheart, I'll bring him by the shop after. Yes, the shop. Yes, you're hosting. Yes, I already decided. Don't argue."
 Mira hadn't argued. Mira had opened her mouth to argue, and now closed it again, looking faintly stricken.
-The elder looked at Drew, and she looked at him for a long second. Her face did something Drew couldn't read, not pity or awe, but something quieter and more difficult than either, and then she smiled, a small smile, tired but warm.
+The elder held his eye for a long second. Her face did something Drew couldn't read, not pity or awe, but something quieter and more difficult than either, and then she smiled, a small smile, tired but warm.
 "Come along, dear." She gestured up the lane with one hand. "My name is Lyselle. I run this place, more or less, when it lets me. We have a great deal to discuss and almost none of it is going to be fun."
 She turned and walked back up the lane the way she had come, without checking whether he was following. Drew followed. The crowd fell back to either side as he went, and he could feel them watching him go, especially Mira, who stood where he had left her in her cut-off overalls with her hands clasped at her bib and her red eyes wide.
 Lyselle's house was the second-to-last on the lane, set a little back from the others, with a small front garden Drew didn't have the botanical vocabulary to describe and a heavy oak door painted dark green. She held it open for him. He went in. She came in after him, closed the door, and slid a wooden bolt across it, and the bolt going home made a heavy, definite *thunk* that was, Drew thought, the first sound since he'd arrived in this place that had felt like a sound from his own world.
@@ -188,7 +188,7 @@ Then there was a wet, indignant *whuff* from the hearthstone, and a chocolate la
 The dog froze.
 Drew, who had not cried in front of another human being since his grandfather's funeral, made a sound he was going to be embarrassed about for the rest of his life.
 "Banjo." He was already out of the chair, on his knees on the rug, hand out. "Banjo, hey. Buddy. Hey."
-Banjo took two stiff, suspicious steps forward, sniffed Drew's outstretched fingers, sniffed his knee, looked up at Drew's face, looked at Drew's face for a long second with the specific intelligence dogs have when they are being asked to verify something important, and then climbed bodily into Drew's lap and pressed his soaked head into Drew's chest and breathed.
+Banjo took two stiff, suspicious steps forward, sniffed Drew's outstretched fingers, sniffed his knee, then looked up and held Drew's face for a long second with the specific intelligence dogs have when they are being asked to verify something important. Then he climbed bodily into Drew's lap, pressed his soaked head into Drew's chest, and breathed.
 Drew put both arms around the dog and hung on. He said the dog's name a couple more times in a voice that wasn't really working. The lab smelled like wet lake, the kayak, and the back of his truck on a Saturday morning, and underneath that, faintly, like the laundry detergent Drew used on his own sheets, because Banjo slept on the bed and the smell got into his fur. Drew had not been aware that his sheets had a smell. He was aware now.
 Across from him, Lyselle was very deliberately looking out the window and giving them the room. After a minute she stood, came over, and unbuckled the orange life jacket from the dog without comment, set it on the hearth to dry, and sat back down. Banjo did not appear to register the loss. He was busy.
 After a while, Drew got himself together. Banjo did not get himself together. Banjo had decided this lap was where he lived now, and he was making a series of small contented dog noises that suggested he was at peace with his decisions in life.

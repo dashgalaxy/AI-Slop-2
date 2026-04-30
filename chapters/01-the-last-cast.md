@@ -8,7 +8,7 @@ Banjo had been staring at the rebuilt reel for forty minutes when Kelsey finally
 Drew thumbed the next washer into place and didn't look up. He'd taken the Shimano apart on his lunch break and gotten distracted by a hairline crack in the bail spring, which had led to ordering a replacement bail spring on his phone, which had led to comparing two bail springs on a forum, which had led to reading a very strongly worded review of a third bail spring, and now it was four-fifteen on a Friday and he had a half-finished quote open in another tab. He pulled the quote forward and started typing again.
 Kelsey came the rest of the way in and hopped onto the corner of his desk anyway. She'd been doing that since her second week at the company, back when Drew had still bothered to look annoyed about it. Four years on, the desk had a Kelsey-sized buff polished into the laminate.
 "You got a minute?" she said.
-"I've got however long it takes you to get to the point," Drew said, eyes on the screen.
+"I've got however long it takes you to get to the point," Drew said, keeping his eyes on the screen.
 "Hannah's single again."
 He kept typing. "Did she dump the spin class guy, or did the spin class guy dump her?"
 "He went to a silent retreat and came back vegan."
@@ -97,13 +97,13 @@ He didn't feel the strike. What he felt, afterward, was a ringing weightless sec
 Drew was sinking through warm water that tasted faintly sweet, kicking upward toward a brightness that was the wrong color for the lake he had just left.
 He broke the surface gasping.
 The water was almost bath-warm. The sky overhead was a soft, untroubled blue that did not belong to any October he had ever stood under. He treaded water in a slow circle and tried to make his eyes agree with what they were reporting.
-He was in the middle of a small lake, maybe a quarter-mile across, ringed by low green hills. A wheat field on the eastern slope had gone gold for harvest. On the north shore, a cluster of timber-and-stone roofs sat along a curving lane with smoke rising from three of the chimneys. The buildings did not belong to any century Drew had personally lived through. Somewhere beyond the lane, sheep were making sheep noises, and a bell was ringing the unhurried, two-tone clang of a bell that had been ringing the same way for a very long time.
+He was in the middle of a small lake, maybe a quarter-mile across, ringed by low green hills. A wheat field on the eastern slope had gone gold for harvest. On the north shore, a cluster of timber-and-stone roofs sat along a curving lane with smoke rising from three of the chimneys. The buildings did not belong to any century Drew had personally lived through. Somewhere beyond the lane, sheep were making sheep noises, and a bell was ringing in unhurried two-tone strokes that sounded like they had not changed in a very long time.
 He was wearing his clothes. Flannel, jeans, and boots, all of it sodden and dragging at him. The tackle, the paddle, and the kayak had vanished. So had his phone, his wallet, his keys, and the granola bar in his jacket pocket. He patted the pockets twice anyway, because that was what a person did.
 "Banjo," he called. "Bud."
 His voice came out small and sideways across the water.
 "Banjo, where are you?"
 A pair of birds lifted off the reeds on the far bank and went arrowing away. Nothing else answered. The kayak and the storm had simply stopped existing, and the lake he was treading water in was calm enough to drink from. Somewhere underneath the panic building in his chest, a much quieter voice had already begun working out that he was not going to find the dog in this water, because the dog had not come with him.
-He swallowed. He swallowed again.
+He swallowed twice, hard.
 A soft chime sounded inside his head.
 It was a polite chime, the kind a hotel doorbell made, or a notification from an app he had not given permission to install. A translucent blue panel unfolded itself in his peripheral vision in a clean sans-serif font he had seen on roughly four thousand video game menus across the course of his life, and it read, sounding faintly like cheerful administrative paperwork:
 WELCOME, ANGLER. TUTORIAL AVAILABLE. [ACCEPT] [DISMISS]

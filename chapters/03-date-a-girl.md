@@ -25,7 +25,7 @@ She tilted her head. "Has anyone walked you through your interface yet?"
 "All of it. The tabs. The HUD. The whole." She waved her hands in front of her face vaguely, as if drawing a window in the air. "The whole *thing*. There's so much we have to explain to you and I want to do it right. Some of the others were going to dog-pile you on the lane and just shout instructions and I almost died, that's not how you do this."
 "There's a — how I do this?"
 "There's absolutely a how you do this. Drew." She leaned forward on the counter, elbows on her knees. "Can I show you Date-A-Girl?"
-Drew looked at her. He held the look for what registered, in his head, as a very long time and was probably closer to a second.
+Drew held her gaze for a beat that stretched long inside his head before snapping back to its actual length, which was about a second.
 "I'm sorry," he said. "Can you show me what now?"
 "It's not — okay, it has a stupid name, I know it has a stupid name." She was already waving both hands like she was wiping the stupid name out of the air. "We've been calling it that since I was little. The actual term is the Companion HUD or sometimes the Affection Interface but everybody calls it Date-A-Girl. Even my grandma. Even the men call it Date-A-Girl, when they're talking to each other, when they think no one's listening. It's just what it's called."
 "Date-A-Girl," Drew repeated.
@@ -61,7 +61,7 @@ He walked her through it. He read off her name, her race, her age, her class. Sh
 "You're an Angler too?"
 "Mhm."
 "You didn't say."
-"You didn't ask. But yeah, every Holloway has been. The shop's an Angler shop. We're the village's tackle line, going back. None of us at very high levels right now, but yeah." She shrugged, a shrug that was a little too casual to be casual. "I'm Lv. 4. Cap's Lv. 9 for native-borns, or it has been, until you got here. You'll pass me in a couple weeks, probably. Don't be weird about it."
+"You didn't ask. But yeah, every Holloway has been. The shop's an Angler shop. We're the village's tackle line, going back. None of us at very high levels right now, but yeah." She shrugged a little too casually to be casual. "I'm Lv. 4. Cap's Lv. 9 for native-borns, or it has been, until you got here. You'll pass me in a couple weeks, probably. Don't be weird about it."
 "Don't be weird about — I wasn't going to be weird about it."
 "Just heading you off. Some Anglers are weird about it."
 "Which Anglers."
@@ -129,12 +129,12 @@ He raised his hand and very gently poked her in the cheek.
 The number on the panel went from 8 to 9. Underneath the locked MOOD readout, a small plus-sign appeared and then disappeared. The portrait, which appeared to be making editorial decisions of its own, looked briefly puzzled, then mildly pleased, then went back to neutral.
 Drew lowered his hand.
 "That," he said, "did something."
-"Did it?"
+"Did it?" Mira tilted her head.
 "You don't see it?"
-"I see your face. I don't see your panel." She rubbed the cheek he'd poked, absently. "I just feel — well, I feel the affection part, sort of, when it changes. The other parts don't read across the room, you have to be touching me, and even then it's pretty vague."
+"I see your face, not your panel." She rubbed the poked cheek absently. "I just feel — well, I feel the affection part, sort of, when it changes. The other parts don't read across the room, you have to be touching me, and even then it's pretty vague."
 "You felt that?"
 "I felt you poked me."
-"Right, sure, but did you feel — did the system. Did it tell you. That you felt anything about it."
+Drew shook his head. "Right, sure, but did you feel — did the system. Did it tell you. That you felt anything about it."
 "Drew, the system isn't *making* me feel anything I wouldn't have felt anyway. Mostly. It reads what's already there and turns the volume up on the parts that are. It's a thermometer with a thumb on the scale, and the thumb is gentle, and the temperature is mine. Mostly."
 "A thermometer."
 "A thermometer."
@@ -174,8 +174,8 @@ She was looking at him with her head cocked sideways and her eyebrows pulled tog
 "For — for life, ideally. Until one of you dies."
 "Oh." She thought about this, lips pursed. "Oh, no, I see. That's because you only get one. Right. That's a finite-resource thing. That makes sense. Here you don't have to pick one. Your tier list is. It's a list, Drew, it's not a bracket. You can level up affection with as many people as you can keep up with. There's no limit. The system isn't — the system isn't jealous. People can be jealous. The system isn't."
 "There's no limit."
-"There's no limit."
-"I can — I can date whoever I want. Multiple. Concurrently. Marry. Multiple."
+"There's no limit," she echoed.
+Drew set both hands flat on the counter. "I can — I can date whoever I want. Multiple. Concurrently. Marry. Multiple."
 "As many as want to date you back. Yes."
 He had been standing for the last part of this conversation. He turned now and walked the three steps to the front window of the shop and looked out at the lane, where a girl with green hair he had not yet met was carrying a basket of tomatoes past on her hip, and then turned back.
 "And that's just."

@@ -27,7 +27,7 @@ She rose on her toes, pressed a quick, sleepy kiss to the corner of his mouth, a
 **AFFECTION 87 → 89**
 **AROUSAL: Sated — 68 → Fond — 74**
 “And?” she asked, voice low and curious.
-Drew didn’t answer with words. He thought the command the way the system had taught him—clean, deliberate, no hesitation.
+Drew didn’t answer with words. He thought the command the way the system had taught him to: clean, deliberate, no hesitation.
 *Kiss me.*
 Mira’s eyes widened for half a second, and then her whole face softened into something bright and eager. She cupped his cheeks with both hands, rose up, and kissed him properly, slow at first, lips parting, tongue brushing his lower lip like she had been waiting for permission all morning. The kiss deepened. She tasted like sleep and honey from the comb at breakfast. Her body pressed closer, small breasts flattening against his chest through the open shirt.
 The panel updated again, numbers climbing faster now.
@@ -45,7 +45,7 @@ The sleep-pants came off in one smooth motion. She hooked her thumbs in the wais
 **AROUSAL: Aroused — 81 → 94**
 Drew’s cock was already half-hard in his pants, pressing against the zipper. He could feel the lustdrunk fog starting to settle in, the same fog that had hit him the first time on the dock when he realized the system had handed him a Lover-tier girlfriend who would do *anything* he asked as long as her mood stayed good. Questions were already circling in the back of his head, about how far this actually went, what happened when he pushed too hard, whether this was real affection or just system compliance, and how he was supposed to do this with her tonight knowing what he knew about a meadow and a folder. Right now, though, the questions felt distant, muffled under the hot, heavy certainty that Mira Holloway was standing naked in her own shop because he had told her to.
 “Sit on that chair,” he said, voice rougher than he meant it to be. “And touch yourself.”
-Mira’s breath caught in a tiny hitch, but she obeyed without a word. She crossed to the low stool by the counter, sat down, spread her thighs wide, and slid two fingers down the slick seam of her pussy. She was still wet from last night; the sound was obscene in the quiet shop—soft, wet clicks as she circled her clit with slow, deliberate strokes. Her red eyes stayed locked on his face the whole time, watching him watch her. Her ears twitched. Her cheeks flushed in those two soft patches he was starting to think of as his personal trophy.
+Mira’s breath caught in a tiny hitch, but she obeyed without a word. She crossed to the low stool by the counter, sat down, spread her thighs wide, and slid two fingers down the slick seam of her pussy. She was still wet from last night, and the sound was obscene in the quiet shop, soft wet clicks as she circled her clit with slow, deliberate strokes. Her red eyes stayed locked on his face the whole time, watching him watch her. Her ears twitched. Her cheeks flushed in those two soft patches he was starting to think of as his personal trophy.
 The panel went wild in his peripheral vision.
 **AFFECTION 96 → 99**
 **MOOD:** Playful — 95 → Desperate — 88
@@ -66,7 +66,7 @@ The questions tried to surface again, about what Lover actually meant here, how 
 Mira’s breathing had gone ragged. Her fingers were moving faster, three of them now, the heel of her hand grinding against her clit. Her pussy was visibly wet, glistening, a thin strand of slick connecting her fingers to her folds every time she pulled them out. Her red eyes were glassy, locked on his cock.
 “Drew,” she gasped. “Drew, I’m—fuck, I’m close—”
 “Not yet,” he said, and the command came out easier than breathing. “Stop.”
-Her hand froze instantly. She whimpered—actually whimpered—but she obeyed, fingers still buried inside herself, chest heaving. The panel ticked down a single point on Mood, then stabilized.
+Her hand froze instantly. She whimpered, actually whimpered, but she obeyed, fingers still buried inside herself, chest heaving. The panel ticked down a single point on Mood, then stabilized.
 **MOOD:** Desperate — 79
 “Good girl,” he said, and the words felt filthy and perfect at the same time.
 Mira’s ears twitched hard. A fresh rush of wetness coated her fingers. “You can’t just *say* things like that,” she breathed. “Not when I’m this worked up.”
@@ -74,12 +74,12 @@ Mira’s ears twitched hard. A fresh rush of wetness coated her fingers. “You 
 She looked up at him, red eyes huge, lips parted, and nodded. “Yeah. Yeah, I will.”
 He reached down, cupped her chin, and ran his thumb across her lower lip. “Open your mouth.”
 She did.
-He slid the head of his cock between her lips—slow, deliberate, letting her taste him. Mira moaned around him, tongue swirling, one hand still obediently frozen between her own thighs. Her free hand came up to wrap around the base of his shaft, stroking what she couldn’t fit yet.
+He slid the head of his cock between her lips, slow and deliberate, letting her taste him. Mira moaned around him, tongue swirling, one hand still obediently frozen between her own thighs. Her free hand came up to wrap around the base of his shaft, stroking what she couldn’t fit yet.
 The panel exploded with green ticks.
 **AFFECTION MAX**
 **MOOD:** Desperate — 85 (recovering)
 **AROUSAL:** MAX
-Drew let her suck him for a long minute—deep, sloppy, eager—before he pulled back just enough to speak.
+Drew let her suck him for a long minute, deep and sloppy and eager, before he pulled back just enough to speak.
 “Reach for the starter rod on the counter.”
 Mira’s eyes flicked sideways to the six-foot light-action rod leaning against the wall. She understood immediately. Her breath hitched. But she didn’t hesitate. Her hand left his cock, reached out, and closed around the cork grip.
 Drew smiled, slow and hungry.
@@ -93,7 +93,7 @@ Mira knelt on the shop floor with the starter rod in one hand and three fingers 
 **AROUSAL: MAX — Overwhelmed**
 **OPINION: My Personal God**
 “Whatever you want, Drew,” she repeated, softer this time. “I’m yours.”
-He believed her. The system had made it true the second he unlocked Lover tier. She would do anything he asked—anything—as long as her mood stayed good. And right now her mood was *very* good.
+He believed her. The system had made it true the second he unlocked Lover tier. She would do anything he asked, literally anything, as long as her mood stayed good. And right now her mood was *very* good.
 “Suck my cock,” Drew said, voice low and rough, “while you fuck yourself with the end of that fishing rod.”
 Mira’s breath hitched, but she didn’t hesitate. She turned the rod in her hand, gripped the cork near the butt, and brought the smooth, rounded end to her own slick entrance. At the same time she leaned forward and took the head of his cock back into her mouth.
 The wet, filthy sounds filled the shop immediately.
@@ -104,19 +104,18 @@ The panel ticked upward in frantic little bursts.
 **MOOD: Desperate — 88 → 91**
 **AROUSAL: MAX — Overwhelmed**
 She took him deeper, cheeks hollowing, eyes watering slightly as she forced herself down until the head of his cock nudged the back of her throat. At the same time she fucked herself faster with the rod, the wet sounds growing louder, messier. Her thighs trembled. A thin trail of her own slick ran down the inside of one leg and dripped onto the floorboards.
-Drew’s balls tightened. He was close—*too* close. The sheer absurdity of it hit him like a freight train: he was getting blown in the middle of a bait shop by a two-hundred-and-thirty-year-old half-elf who was simultaneously fucking herself with a fishing rod because he had told her to. A month ago he had been a divorced thirty-one-year-old from Wisconsin who couldn’t even change the preset on his truck radio. Today the system had handed him a personal fuckdoll with a built-in HUD that tracked exactly how much she liked being used.
-The questions tried to surface again. *How far does this go? What happens when the mood bar finally drops for real? Is any of this actually her, or is it all just system compliance dressed up as affection?* But the lust was louder. Hotter. He wanted to push. He wanted to see the absolute limit of what Lover tier would let him get away with.
+Drew’s balls tightened. He was close, *too* close. The sheer absurdity of it hit him like a freight train: he was getting blown in the middle of a bait shop by a two-hundred-and-thirty-year-old half-elf who was simultaneously fucking herself with a fishing rod because he had told her to. A month ago he had been a divorced thirty-one-year-old from Wisconsin who couldn’t even change the preset on his truck radio. Today the system had handed him a personal fuckdoll with a built-in HUD that tracked exactly how much she liked being used.
+The questions tried to surface again, *how far does this go, what happens when the mood bar finally drops for real, is any of this actually her or is it all just system compliance dressed up as affection*, but the lust was louder and hotter, and he wanted to push, wanted to see the absolute limit of what Lover tier would let him get away with.
 He pulled out of her mouth with a wet pop, cock shiny with spit. Mira gasped for air, lips swollen, but she kept the rod moving inside herself without being told.
 “Outside,” Drew said. “Now. Dock. Naked. On all fours.”
-Mira’s eyes went wide for a split second—then she smiled. That same bright, willing, slightly wicked smile. She pulled the rod out of her pussy with a soft, wet sound, set it aside, and stood up on shaky legs. Completely bare, cum and spit still glistening on her chin, she walked straight out the back door onto the deck without a single word of protest.
+Mira’s eyes went wide for a split second, and then she smiled, that same bright, willing, slightly wicked smile. She pulled the rod out of her pussy with a soft, wet sound, set it aside, and stood up on shaky legs. Completely bare, cum and spit still glistening on her chin, she walked straight out the back door onto the deck without a single word of protest.
 Drew followed, cock still hard and aching, heart hammering.
 The afternoon was warm on the wooden planks. The creek curved green and slow beneath the pilings. Across the water, the far bank and the southern edge of the village lane were visible through the trees, close enough that anyone who happened to glance this way would see everything. No one was out at the moment, and the lane was quiet, but the *possibility* was there, and so were the risk and the exhibitionism.
 Mira didn’t hesitate. She dropped to her hands and knees right on the edge of the dock, ass up, back arched, short black hair falling forward. Her pussy was visibly swollen and dripping, lips parted, a thin strand of slick hanging from her clit. She looked back over her shoulder at him, red eyes bright, ears twitching, and gave a small, eager nod.
 “I’m ready,” she said simply.
 Drew knelt behind her, lined up, and shoved his cock into her in one long, hard thrust.
-Mira cried out—loud enough that the sound carried across the water. Her pussy clamped down around him like a fist, hot and velvety and still fluttering from the rod. He bottomed out with a groan, balls pressed against her ass, and started fucking her.
-Hard.
-The wet slap of skin on skin echoed off the water. Mira pushed back into every thrust, moaning, “Yes—fuck—Drew—harder—” like being railed in full view of half the village was just another item on the request list. Her small tits swayed beneath her. Her pointed ears flushed dark at the tips. She stayed perfectly on all fours, letting him use her, completely unashamed.
+Mira cried out, loud enough that the sound carried across the water. Her pussy clamped down around him like a fist, hot and velvety and still fluttering from the rod. He bottomed out with a groan, balls pressed against her ass, and started fucking her hard.
+The wet slap of skin on skin echoed off the water. Mira pushed back into every thrust, moaning, “Yes—fuck—Drew—harder—” like being railed in full view of half the village was just another item on the request list. Her small tits swayed beneath her, her pointed ears flushed dark at the tips, and she stayed perfectly on all fours, letting him use her, completely unashamed.
 The panel in Drew’s vision updated in real time.
 **AFFECTION: MAX (held)**
 **MOOD: Playful — 91 → 84**
@@ -160,7 +159,7 @@ Drew didn’t deny it. “Yeah. I did.”
 “And you pulled out and finished on my back instead of pushing for more.”
 “I didn’t want to piss you off.”
 Mira’s smile softened into something warmer, more genuine. She reached up and brushed wet fingers along his jaw. “That’s sweet, and smart. The system’s forgiving, Drew, but it’s not *infinitely* forgiving. Prolonged exposure like that, naked, on display, taking it from behind where half the village could have walked out and seen, starts to wear on the mood after a while, even when I’m into it, even when I *want* to be into it.” She leaned in and kissed him, slow and unhurried, tasting like creek water and the faint herbal soap she used. “You read the room. Or the HUD. Either way. I appreciate it.”
-He kissed her back, one hand sliding around to the small of her back, pulling her closer until her breasts pressed against his chest. The water made everything slick and weightless. Her legs tangled with his under the surface. For a long minute they just stayed like that—kissing, touching, the afternoon sun filtering through the trees and painting shifting patterns on the water.
+He kissed her back, one hand sliding around to the small of her back, pulling her closer until her breasts pressed against his chest. The water made everything slick and weightless. Her legs tangled with his under the surface. For a long minute they just stayed like that, kissing and touching while afternoon light filtered through the trees overhead.
 When they finally broke apart, Drew rested his forehead against hers. “I keep thinking about how far this goes. Lover tier. The requests. You said you’d do anything I asked as long as your mood stayed good, and you *did*, with the rod, on the dock, letting me fuck you where anyone could see. You didn’t even hesitate.”
 “I didn’t,” she agreed, no shame in her voice. “Because I wanted to. And because the system made it easy to say yes. But the wanting was real, Drew. It still is.” She took his hand and guided it between her legs under the water, letting him feel how warm and slick she still was despite the creek. “See? Even after everything, even with the mood bar having dipped a little, I’m still wet for you. Still ready if you want more. That’s not the HUD forcing me. That’s me.”
 He chose to take her at her word, and noticed, while he chose, that he was choosing. The choosing, he was beginning to think, was the only honest part of the whole arrangement, the part the system did not, and could not, do for him. The wanting being real was Mira’s claim to make. Whether to believe her was his.
@@ -181,55 +180,54 @@ She stayed that way while she finished chopping the herbs, ass up, legs slightly
 “Probably.”
 “I’m okay with that.” She rocked her hips once, deliberately, grinding against the growing bulge in his pants. “Just remember the mood bar is your friend. And my friend. And if it starts dropping too fast, you back off. Deal?”
 “Deal.”
-They kissed again—deeper this time, hands roaming. Drew’s palms slid down her back to cup her ass, squeezing, pulling her tighter against him. Mira moaned softly into his mouth. The panel kept ticking upward, steady and approving.
+They kissed again, deeper this time, hands roaming. Drew’s palms slid down her back to cup her ass, squeezing, pulling her tighter against him. Mira moaned softly into his mouth. The panel kept ticking upward, steady and approving.
 **AFFECTION 96 → 98**
 **MOOD: Playful — 87**
 **AROUSAL: 74 → 81**
-Eventually Mira pulled back, breathless, and rested her forehead against his. “Food first. Then maybe we test one more request before the sun goes down. Something easy. Something fun. I want to see how high we can push the bar in one day without crossing any lines.”
-Drew nodded, already thinking of possibilities. The list from this morning was still burned into his memory—domestic, relational, intimate, more. He had ideas. Plenty of ideas.
+Eventually Mira pulled back, breathless, and rested her forehead against his. “Food first. Then maybe we test one more request before evening. Something easy and fun. I want to see how high we can push the bar in one day without crossing any lines.”
+Drew nodded, already thinking of possibilities. The list from this morning was still burned into his memory, domestic, relational, intimate, and more. He had plenty of ideas.
 But for now he let her slide off his lap, watched her finish cooking while she stayed gloriously naked, and let the quiet satisfaction of the afternoon settle over him.
 He was still dead, still in another world, still the village’s Main Protagonist with a dog, a floating boathouse to build, and approximately twenty-six bouquets left in his inventory.
 But right now, with Mira warm and willing and thoroughly his in every way the system would allow, Drew Halloran decided he could live with that, for tonight, at least, and maybe for a lot longer than that.
 Mira slid off his lap with a playful little bounce that made her small, perky breasts jiggle once, then twice. She turned back to the stove, still completely naked, hips swaying as she stirred the pot of beans and smoked fish she’d thrown together. The scent of herbs and pepper filled the shop. Drew stayed on the stool, watching her, cock half-hard again just from the sight of her bare ass and the way her pointed ears twitched every time she felt his eyes on her.
-She plated two bowls, carried them over, and climbed right back into his lap without asking—facing him this time, straddling his thighs, the heat of her pussy pressing against the bulge in his pants through the fabric. She handed him a bowl and a spoon.
+She plated two bowls, carried them over, and climbed right back into his lap without asking, facing him this time, straddling his thighs, the heat of her pussy pressing against the bulge in his pants through the fabric. She handed him a bowl and a spoon.
 “Eat,” she said, voice low and teasing. “Then we test one more request. Something that lets you be a little rough. I’m in a *very* good mood right now.”
-Drew took the bowl but didn’t eat yet. He looked at her—naked, flushed from the creek and the earlier fucking, red eyes bright with anticipation—and thought the command clearly.
+Drew took the bowl but didn’t eat yet. He looked at her, naked, flushed from the creek and the earlier fucking, red eyes bright with anticipation, and thought the command clearly.
 *Bend over the counter. Let me fuck you from behind until I cum inside you.*
 Mira’s breath caught. Her pupils dilated. She set her own bowl aside, slid off his lap, and walked straight to the long wooden counter that ran the length of the front room. She bent at the waist, planted both hands on the worn surface, arched her back, and spread her legs just enough. Her ass lifted, pussy lips already glistening and parted, the neat dark triangle of hair above them framing everything perfectly. She looked back over her shoulder at him, short black hair falling forward, and gave that same bright, willing smile.
 “Like this?” she asked.
 “Exactly like that.”
-Drew stood, shoved his pants down, and stepped up behind her. He ran his hands over the smooth curve of her ass, squeezing, spreading her cheeks so he could see every inch of her. Then he lined up and pushed in—slow at first, letting her tight cunt stretch around him inch by inch until his hips met her ass with a wet *slap*.
+Drew stood, shoved his pants down, and stepped up behind her. He ran his hands over the smooth curve of her ass, squeezing, spreading her cheeks so he could see every inch of her. Then he lined up and pushed in slowly at first, letting her tight cunt stretch around him inch by inch until his hips met her ass with a wet *slap*.
 Mira moaned, low and throaty. “Fuck—Drew—”
-He didn’t hold back. He pulled back and slammed in again, harder. The sound of skin slapping skin filled the shop—sharp, rhythmic *slap-slap-slap* as his hips met her ass over and over. Her small breasts swung beneath her, jiggling with every thrust, nipples brushing the counter. He reached around, cupped one, thumb rolling over the stiff peak while he fucked her.
-The wet sounds were filthy—his cock driving deep into her soaked pussy, her juices coating his shaft, dripping down her thighs and onto the floor. *Schlick-schlick-schlick*. Every time he bottomed out, her ass rippled from the impact. Her pointed ears twitched hard. Her short black hair swayed.
+He didn’t hold back. He pulled back and slammed in again, harder. The sound of skin slapping skin filled the shop, sharp and rhythmic *slap-slap-slap* as his hips met her ass over and over. Her small breasts swung beneath her, jiggling with every thrust, nipples brushing the counter. He reached around, cupped one, thumb rolling over the stiff peak while he fucked her.
+The wet sounds were filthy, his cock driving deep into her soaked pussy, her juices coating his shaft and dripping down her thighs onto the floor. *Schlick-schlick-schlick*. Every time he bottomed out, her ass rippled from the impact, her pointed ears twitched hard, and her short black hair swayed.
 **AFFECTION 98 → 100 (MAX)**
 **MOOD: Playful — 87 → Desperate — 93**
 **AROUSAL: 81 → MAX — Overwhelmed**
-Drew gripped her hips tighter and picked up the pace, pounding into her with long, powerful strokes. The counter creaked under her hands. Mira pushed back into every thrust, meeting him, moaning louder now—high, breathy sounds that echoed off the rafters. Her breasts jiggled harder, bouncing freely with the force of his thrusts, the pale flesh rippling each time his hips crashed into her ass with another loud *slap*.
+Drew gripped her hips tighter and picked up the pace, pounding into her with long, powerful strokes. The counter creaked under her hands. Mira pushed back into every thrust, meeting him, moaning louder now in high, breathy sounds that echoed off the rafters. Her breasts jiggled harder, bouncing freely with the force of his thrusts, the pale flesh rippling each time his hips crashed into her ass with another loud *slap*.
 “Gods—yes—harder—” she gasped, voice breaking. “Use me—fuck, Drew, just like that—”
-He gave her exactly what she asked for. He fucked her like he owned her—because right now, in this moment, the system had made it true. His balls slapped against her clit with every stroke. The wet, obscene *slap-slap-slap* of their bodies filled the entire shop. Her pussy clenched around him rhythmically, fluttering, trying to pull him deeper. Sweat beaded on her lower back. He leaned over her, one hand sliding up to fist in her short black hair, pulling her head back just enough to expose the line of her throat.
+He gave her exactly what she asked for. He fucked her like he owned her, because right now, in this moment, the system had made it true. His balls slapped against her clit with every stroke. The wet, obscene *slap-slap-slap* of their bodies filled the entire shop. Her pussy clenched around him rhythmically, fluttering, trying to pull him deeper. Sweat beaded on her lower back. He leaned over her, one hand sliding up to fist in her short black hair, pulling her head back just enough to expose the line of her throat.
 “Tell me how it feels,” he growled against her ear.
 “So full—ah!—so deep—your cock is splitting me open—don’t stop—please don’t stop—”
 He didn’t. He fucked her harder, the sound of their bodies colliding growing louder, wetter. Her breasts swung wildly beneath her, jiggling and bouncing with every brutal thrust. The panel in his vision was a blur of green ticks.
 **MOOD: Desperate — 93 → 96**
 **AROUSAL: MAX**
 **OPINION: My Personal God**
-Drew felt his orgasm building fast—tight, hot pressure in his balls, the base of his spine. He reached under her again, found her clit with two fingers, and rubbed in tight circles while he kept pounding her from behind. Mira’s moans turned into a broken cry. Her pussy clamped down hard around him, pulsing, and she came with a sharp, gasping wail—thighs shaking, ass pushing back against him, breasts still jiggling from the force of his thrusts even as her whole body locked up in pleasure.
-The feeling of her cumming on his cock pushed him over the edge. He buried himself to the hilt and came hard—thick, hot pulses flooding deep inside her, filling her up while her pussy milked him for every drop. The wet *slap* of his final thrusts echoed one last time as he ground against her ass, emptying himself completely.
-For a long moment they stayed like that—him draped over her back, both of them panting, his cock still twitching inside her. Cum leaked out around his shaft, running down her thighs in thin white trails. Her breasts pressed against the counter, rising and falling with every shaky breath.
+Drew felt his orgasm building fast, tight, hot pressure in his balls and at the base of his spine. He reached under her again, found her clit with two fingers, and rubbed in tight circles while he kept pounding her from behind. Mira’s moans turned into a broken cry. Her pussy clamped down hard around him, pulsing, and she came with a sharp, gasping wail, thighs shaking, ass pushing back against him, breasts still jiggling from the force of his thrusts even as her whole body locked up in pleasure.
+The feeling of her cumming on his cock pushed him over the edge. He buried himself to the hilt and came hard, thick hot pulses flooding deep inside her, filling her up while her pussy milked him for every drop. The wet *slap* of his final thrusts echoed one last time as he ground against her ass, emptying himself completely.
+For a long moment they stayed like that, him draped over her back, both of them panting, his cock still twitching inside her. Cum leaked out around his shaft, running down her thighs in thin white trails. Her breasts pressed against the counter, rising and falling with every shaky breath.
 Drew pulled out slowly. The wet *schlick* sound made Mira whimper. More of his cum dribbled from her well-fucked pussy, dripping onto the floorboards. She stayed bent over the counter for a moment longer, ass still up, letting him look at the mess he’d made of her.
-Then she straightened, turned, and kissed him—soft, sweet, nothing like the rough fucking they’d just finished. Her arms looped around his neck. Her naked body pressed against his.
+Then she straightened, turned, and kissed him, softly and sweetly, nothing like the rough fucking they’d just finished. Her arms looped around his neck and her naked body pressed against his.
 “That,” she whispered against his mouth, “was a very good request.”
 Drew laughed, breathless, and pulled her closer. “Yeah. It was.”
-They cleaned up together—him wiping her thighs with a damp cloth, her doing the same for him—still naked, still touching, still trading lazy kisses. The panel had settled into something deeply satisfied.
+They cleaned up together, him wiping her thighs with a damp cloth, her doing the same for him, still naked, still touching, still trading lazy kisses. The panel had settled into something deeply satisfied.
 **AFFECTION: MAX (held)**
 **MOOD: Content — 91**
 **AROUSAL: Sated — 82**
-Later, after they’d finally eaten and Mira had pulled on just her sleep-shirt (leaving it open), they sat on the back deck watching the last of the sunlight fade over the creek. Banjo had wandered out to join them, flopping at Drew’s feet with a contented sigh.
+Later, after they’d finally eaten and Mira had pulled on just her sleep-shirt and left it open, they sat on the back deck watching the day fade over the creek. Banjo had wandered out to join them, flopping at Drew’s feet with a contented sigh.
 Mira leaned against his side, head on his shoulder. “Tomorrow we should go see Branwen about the boathouse logs. And maybe stop by Iri’s for more chocolates for Lyselle. You’re going to need to keep the elder happy if you want answers.”
 Drew nodded, one arm around her. “And I want to test a few more requests. Nothing crazy. Just… see how far we can push in a day without the mood bar tanking.”
-Mira smiled against his shirt. “I’m game. As long as you keep reading the room—or the HUD.”
-They sat in comfortable silence for a while, the creek murmuring below them, the village settling into evening quiet. Somewhere down the lane a bell rang the eighth hour. Drew thought about the questions still circling in the back of his head—the system, the editing of memories, the long propagation Lyselle had described, what it all meant for him and the women he was starting to care about.
+Mira smiled against his shirt. “I’m game. As long as you keep reading the room, or the HUD.”
+They sat in comfortable silence for a while, the creek murmuring below them, the village settling into evening quiet. Somewhere down the lane a bell rang the eighth hour. Drew thought about the questions still circling in the back of his head, the system, the editing of memories, the long propagation Lyselle had described, what it all meant for him and the women he was starting to care about.
 He thought about Lila, too, in the small folded way a man holds a thing he has been told not to hand over yet. He thought about the figure walking, and about the fact that Mira, sitting against his side with her bare shoulder warm against his, did not know any of that, that he was the one who knew, and that the not-telling was, this evening, the cost of the rest of it. He could carry it. He could carry it for a while. But for tonight, with Mira warm and willing against his side and the taste of her still on his tongue, those questions could wait.
-He had a Lover-tier half-elf who would do anything he asked.
-And right now, that was more than enough.
+He had a Lover-tier half-elf who would do anything he asked, and right now, that was more than enough.

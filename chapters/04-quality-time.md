@@ -145,16 +145,16 @@ She pulled her knees up to her chest and watched the bobber on his line drift si
 "Friend and other friend? Yeah. The system knows. It's pretty smart about it. You can do quality time with anyone. The number ticks differently depending on what they want from you, but it ticks."
 "Huh."
 "Mhm."
-He sat, and she sat, and Banjo sat beside Drew on the dock, body pressed against Drew's hip, watching the bobber with the same focused attention he would have given the smallmouth on the kayak. The water under them was clear and dark, the surface dotted with the slow, occasional rings of small fish rising. The afternoon was warm but not hot. The air smelled of distant woodsmoke from the village, and closer in, the cheese she had made, and underneath all of it, Mira herself, herbal and clean. The number on the panel went from 19 to 20.
+They both sat, and Banjo settled in beside Drew on the dock, body pressed against Drew's hip, watching the bobber with the same focused attention he would have given the smallmouth on the kayak. The water under them was clear and dark, the surface dotted with the slow, occasional rings of small fish rising. The afternoon was warm but not hot. The air smelled of distant woodsmoke from the village, and closer in, the cheese she had made, and underneath all of it, Mira herself, herbal and clean. The number on the panel went from 19 to 20.
 He had a fish on his line in about six minutes.
-It hit his bobber the way a normal fish hit a normal bobber, and he set the hook automatically, three decades of muscle memory doing the work for him, and the rod bent, and the fish ran. Mira yelped. Banjo levitated. The fish made one long run downstream and then turned and came back, and Drew gained line on the return, and inside of two minutes he had it sliding up onto the dock.
+It hit his bobber the way a normal fish hit a normal bobber. He set the hook automatically, three decades of muscle memory doing the work for him, the rod bent, and the fish ran. Mira yelped. Banjo levitated. The fish made one long run downstream, then turned and came back. Drew gained line on the return, and inside of two minutes he had it sliding up onto the dock.
 It was a fish.
 It was not, in the strictest scientific sense, a fish he recognized. It was about ten inches long, with the general blueprint of a sunfish, but its scales were a soft iridescent purple that shaded toward green at the gills, its dorsal spines were tipped in pale gold, and when it flopped on the dock it made a small, surprisingly musical chirping noise.
 "It chirps," Drew said.
 "Chubchirp. Yeah, they do that. They're great. They taste like — kind of like trout, kind of like apples. It's complicated. They're one of my favorites."
 "It's *chirping.*"
 "Drew." Her voice had changed. "Drew, look."
-He looked at her. The portrait at the corner of his vision had its hands clapped over its mouth, and Mira had her hands clapped over her mouth, and her wide red eyes were starting, in a quiet alarming way, to fill up.
+He looked at her. Both Mira and the portrait at the corner of his vision had their hands clapped over their mouths, and her wide red eyes were starting, quietly and alarmingly, to fill up.
 "You caught a fish," Mira said.
 "Yeah."
 "On my dock."
@@ -173,7 +173,7 @@ Mira pulled back and held him by both shoulders at arm's length and gave him a s
 "I'm going to teach you Fisherman's Sight," she said, "and then we're going to keep fishing until sundown because I have decided. Okay?"
 "Okay."
 "Sit. Hold the rod. Look at the water. Just at the water."
-He sat. He held the rod. He looked at the water.
+He sat with the rod across his knees and looked at the water.
 She knelt behind him on the dock. He could feel her there, the warmth of her, very close to his back without touching it. Her voice came over his shoulder, quiet and patient, and the portrait at the corner of his vision had stilled and was watching the water with him.
 "Close your eyes."
 "Okay."
@@ -188,8 +188,7 @@ ABILITIES (Active): Fisherman's Sight (Lv. 1) While focused on a body of water, 
 He opened his eyes.
 The creek was full of light.
 Not the creek, the fish. They were everywhere, in soft glowing blue outlines that hung in the dark water like lanterns at different depths. There were a dozen chubchirps, maybe more, holding in the deeper bend. There were two long, thin shapes he didn't recognize, lying in the weed under the dock, that he was almost certain were predators of some kind. There was a single very large outline far down at the bottom of the bend, almost on the creek floor, that did not move and which he watched for a long second before he realized it wasn't a fish at all. It was a stone. The system was being honest with him about what was a fish and what wasn't, and what was a fish but wasn't moving, and where everything was, all at once, in a calm blue map that did not require him to do anything at all to read it.
-He laughed.
-It came out of him, and it surprised him, and it was the first laugh he had laughed since the moment on the kayak before the lightning. It wasn't a full laugh. It was one short bark of a laugh that turned into a longer rolling one and then settled into something quieter.
+He laughed. It came out of him before he saw it coming, the first time he'd done it since the moment on the kayak before the lightning. It wasn't quite a full laugh, just one short bark of a laugh that turned into a longer rolling one and settled into something quieter.
 "Mira," he said.
 "Yeah?" Her voice was right at his shoulder.
 "This is — this is incredible."
