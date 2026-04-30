@@ -2,7 +2,7 @@
 
 The bait and tackle shop sat at the south end of the lane, where the village ran out and the path bent down toward the water. It was a long, low building with a slate roof, a hand-painted wooden sign reading HOLLOWAY'S — TACKLE, BAIT, SUNDRIES in faded blue letters, and a small front porch with a single rocking chair on it that had clearly been there longer than Drew had been alive.
 Mira was talking the whole way over.
-She talked about the shop, which she had taken over from her mother, who had taken it over from her own mother, who had supposedly built the original of it three hundred and some years ago when the village was just a fishing camp. She talked about the porch chair, which had a cushion she had embroidered when she was twelve and which she was unreasonably proud of. She talked about her grandmother, who lived two doors down and who was going to lose her mind when she found out about Drew, and who Drew was absolutely not going to be allowed to escape meeting at some point in the next two days. Drew, walking beside her with his clothes dripping a slow thin trail of lake water onto the white stone of the lane, mostly listened. Banjo, between them, occasionally bumped his head against the back of Mira's calf in a way Drew was almost positive was strategic.
+She talked about the shop, which she had taken over from her mother, who had taken it over from her own mother, who had supposedly built the original of it three hundred and some years ago when the village was just a fishing camp. There was the porch chair, with a cushion she had embroidered when she was twelve and was unreasonably proud of. Then she got onto her grandmother, who lived two doors down and was going to lose her mind when she found out about Drew, and who Drew was absolutely not going to be allowed to escape meeting at some point in the next two days. Drew, walking beside her with his clothes dripping a slow thin trail of lake water onto the white stone of the lane, mostly listened. Banjo, between them, occasionally bumped his head against the back of Mira's calf in a way Drew was almost positive was strategic.
 "Okay," Mira said, fishing a small iron key out of the front pocket of her overalls. "Okay, here we are. Mind the step, it's higher than it looks. Mind the dog, he's already eaten one of my mom's needlework cushions and he's going to want to eat the other." She glanced down at Banjo as she fit the key into the lock. "Sorry, dog, I don't even know your name, I'm sorry, I'm Mira, you can keep doing what you're doing."
 Banjo, having sniffed the rocking chair cushion and apparently approved of it, was already trying to climb onto it.
 "Banjo, off," Drew said.
@@ -25,8 +25,7 @@ She tilted her head. "Has anyone walked you through your interface yet?"
 "All of it. The tabs. The HUD. The whole." She waved her hands in front of her face vaguely, as if drawing a window in the air. "The whole *thing*. There's so much we have to explain to you and I want to do it right. Some of the others were going to dog-pile you on the lane and just shout instructions and I almost died, that's not how you do this."
 "There's a — how I do this?"
 "There's absolutely a how you do this. Drew." She leaned forward on the counter, elbows on her knees. "Can I show you Date-A-Girl?"
-Drew looked at her.
-Drew looked at her for what felt to him like a long time and what was probably about a second.
+Drew looked at her. He held the look for what registered, in his head, as a very long time and was probably closer to a second.
 "I'm sorry," he said. "Can you show me what now?"
 "It's not — okay, it has a stupid name, I know it has a stupid name." She was already waving both hands like she was wiping the stupid name out of the air. "We've been calling it that since I was little. The actual term is the Companion HUD or sometimes the Affection Interface but everybody calls it Date-A-Girl. Even my grandma. Even the men call it Date-A-Girl, when they're talking to each other, when they think no one's listening. It's just what it's called."
 "Date-A-Girl," Drew repeated.
@@ -35,22 +34,19 @@ Drew looked at her for what felt to him like a long time and what was probably a
 "I'm not sure if there are dashes, actually. I've never seen it written down. There might be dashes."
 "Okay."
 "Do you want me to show you?"
-He looked at her. He looked at the dog by the stove. He looked at the shop, at the rafters and the jars and the swaying lures, at the perfectly normal-looking afternoon light coming through the front windows of a shop in a village in a world he had been alive in for approximately four hours.
+He looked at her, then at the dog by the stove, then around the shop, taking in the rafters, the jars, the swaying lures, and the perfectly normal-looking afternoon light coming through the front windows of a shop in a village in a world he had been alive in for approximately four hours.
 "Yeah," he said. "Sure. Why the hell not."
 "Okay! Okay, yes, great. So." She hopped down off the counter and came around to stand in front of him, planting her boots firmly, bouncing once on her toes. "Pull up your interface. The way you did with the skill tree. Same trick. Just think *companion HUD* at it, or *Date-A-Girl*, or *party menu*, whichever. It's all the same screen."
 He thought *companion HUD*.
-The blue panel chimed and unfolded in his peripheral vision, and then a second panel unfolded next to the first one, and then a small floating window — a cleaner, smaller window than the others, with rounded corners — drifted out of the periphery and parked itself politely in the air just to the right of Mira's head.
+The blue panel chimed and unfolded in his peripheral vision, and then a second panel unfolded next to the first one, and then a small floating window, cleaner and smaller than the others, with rounded corners, drifted out of the periphery and parked itself politely in the air just to the right of Mira's head.
 He blinked at it.
-The window contained a small, animated portrait of Mira, drawn in a style that landed squarely between cartoon and miniature painting. The portrait blinked when he blinked at it. Then it winked. Then it stuck out its tongue. Drew was reasonably sure the actual Mira had not winked or stuck out her tongue. He glanced at her face. She was watching him expectantly. Her tongue was where it was supposed to be.
+The window contained a small, animated portrait of Mira, drawn in a style that landed squarely between cartoon and miniature painting. The portrait blinked when he blinked at it, then winked at him, and then stuck out its tongue. Drew was reasonably sure the actual Mira had not done any of that. He glanced at her face. She was watching him expectantly, and her tongue was where it was supposed to be.
 Below the portrait, in the same clean sans-serif font he was apparently going to be reading the rest of his life:
 MIRA HOLLOWAY Race: Half-Elf | Age: 22 | Class: Angler / Shopkeeper
 AFFECTION ▮▯▯▯▯▯▯▯▯▯ 8 / 100 Tier: Stranger
 MOOD — [LOCKED] OPINION — [LOCKED] AROUSAL — [LOCKED] AVAILABLE REQUESTS — [LOCKED]
 Affection increases through quality interaction, sincere conversation, gift exchange, and shared experience. Tier increases unlock additional information and relationship options.
-Drew read it.
-He read it again.
-He looked up at Mira.
-He looked back at the panel. The portrait, unprompted, did a little finger-wave at him.
+Drew read it twice through, looked up at Mira, then dropped his eyes back to the panel. The portrait, unprompted, did a little finger-wave at him.
 "Your portrait just waved at me, Mira."
 "Oh, the avatars are flirty, yeah. Mine especially." She grinned. "My mom used to say my Date-A-Girl avatar had more game than I did." She paused. "She wasn't wrong."
 "I'm — okay. Half-elf?"
@@ -65,7 +61,7 @@ He walked her through it. He read off her name, her race, her age, her class. Sh
 "You're an Angler too?"
 "Mhm."
 "You didn't say."
-"You didn't ask. But yeah, every Holloway has been. The shop's an Angler shop. We're the village's tackle line, going back. None of us at very high levels right now, but yeah." She shrugged, in a way that was a little too casual to be casual. "I'm Lv. 4. Cap's Lv. 9 for native-borns, or it has been, until you got here. You'll pass me in a couple weeks, probably. Don't be weird about it."
+"You didn't ask. But yeah, every Holloway has been. The shop's an Angler shop. We're the village's tackle line, going back. None of us at very high levels right now, but yeah." She shrugged, a shrug that was a little too casual to be casual. "I'm Lv. 4. Cap's Lv. 9 for native-borns, or it has been, until you got here. You'll pass me in a couple weeks, probably. Don't be weird about it."
 "Don't be weird about — I wasn't going to be weird about it."
 "Just heading you off. Some Anglers are weird about it."
 "Which Anglers."
@@ -85,12 +81,12 @@ He let it sit. She was telling something almost-true and ducking the whole-true,
 "Yes."
 "That's just — that's a tab."
 "It's just a tab. It's a number out of a hundred. It's not weird, Drew."
-"It's a little weird."
-"It's physics, it's not weird."
+"It's a little weird," Drew said.
+She crossed her arms. "It's physics, it's not weird."
 "It is a little weird."
 "You'll get used to it."
 "I might not."
-"You will, but I admire your conviction."
+She grinned. "You will, but I admire your conviction."
 She was beaming again. The portrait at the corner of his vision was doing some kind of small dance now, possibly a curtsey, he was not going to look directly at it. The kettle on the stove was starting to whistle. Banjo, who had been mostly asleep, raised his head, considered the situation, and concluded the situation did not require his intervention.
 "Mira, you said you're twenty-two."
 "Yeah."
@@ -107,7 +103,7 @@ He waited for her to look back at him.
 "Because we're frozen."
 She said it without any particular weight. She said it the way somebody might say *because the door's blue.* She had her elbows on the counter and her chin propped on her fist, and she said it like she had said it a thousand times to traveling merchants and curious goats, and she did not appear to find the saying of it interesting.
 "Frozen," Drew said.
-"Frozen. Everybody in the village. Always. We hit our adult shape and then the system locks us in. It's fine." She waved her free hand at the room as if the room was evidence. "Nothing changes. Nothing ages. Nothing hurts, and nothing breaks down, and nothing wears out. It's actually really nice if you don't think about it too hard."
+"Frozen. Everybody in the village. Always. We hit our adult shape and then the system locks us in. It's fine." She waved her free hand at the room as if the room was evidence. "Things don't change here. We don't age, we don't get sick, we don't wear out, and nothing in the village really breaks down. It's actually really nice if you don't think about it too hard."
 "Wait, *nothing*—"
 "Don't think about it too hard."
 "I — "
@@ -119,7 +115,7 @@ She straightened up off her elbows.
 "Of what."
 "Of *us*, dummy. Of the village. Of — okay, look, I don't actually know what it means in the grand sense. None of us do. There's a slot in the village's ledger and it has the words *Main Protagonist* on it, and the slot has been empty since the village was founded, which was a long time before I was born, and which my mom and my grandma and her grandma were all already alive for. We have been waiting. The whole village. Forever. You're the first."
 "The first."
-"The first ever." She was counting on her fingers again, then gave up and just held both hands out flat. "Travelers come and go, sometimes. People who pass through and leave. The Main slot is for the one who arrives and stays and tends the lake. *That* one's been empty. That's the slot you walked into."
+"The first ever." She was counting on her fingers again, then gave up and just held both hands out flat. "Travelers come and go, sometimes. People who pass through and leave. The Main slot is for the one who arrives, stays, and tends the lake. *That* one's been empty. That's the slot you walked into."
 She had her arms wrapped around her knees on the counter at some point during this part of the conversation. He had not noticed when she had wrapped them.
 "Mira, that is — that is a lot of waiting."
 "You have no idea." She shook her head once and then, as if she'd caught herself getting heavy, snapped back into brightness. "Anyway! That's the big stuff. You'll learn the rest as you go. Do you want to test the HUD?"
@@ -127,7 +123,7 @@ She had her arms wrapped around her knees on the counter at some point during th
 "Yeah! Try things. See what happens to my numbers. We have to fill in your relationship sheet anyway, you can't get to Acquaintance just by standing here looking shocked, you have to *do* things. Let's go. What do you want to try?"
 He stood up.
 He didn't know, exactly, why he stood up. The stool was comfortable. The dog was content. The kettle was still whistling and Mira had not yet got around to taking it off the stove. Possibly he stood up because he had been staring at a flirty winking cartoon of the woman in front of him for ten minutes and his body was insisting on movement of any kind, just to remember it could.
-He took two steps closer to her. He looked at her face. He looked at the floating window beside her face. He looked at the *Affection 8 / 100* and the little portrait that was, currently, standing at attention as if it were paying close attention to what he was about to do.
+He took two steps closer to her, looked at her face, and then over at the floating window beside it, where the *Affection 8 / 100* was glowing and the little portrait was, currently, standing at attention, as if paying close attention to what he was about to do.
 He raised his hand and very gently poked her in the cheek.
 "Huh," Mira said.
 The number on the panel went from 8 to 9. Underneath the locked MOOD readout, a small plus-sign appeared and then disappeared. The portrait, which appeared to be making editorial decisions of its own, looked briefly puzzled, then mildly pleased, then went back to neutral.
@@ -192,11 +188,11 @@ She had been looking at him patiently, amused, like a woman explaining tap water
 "Yeah?"
 "Yeah."
 "You don't know."
-"I don't know. Nobody knows." She had hopped off the counter at some point and was standing now with her arms folded, looking at him in a way she had not yet looked at him. "We've been here a long time, Drew, and we don't know who. We don't know why. We have a town and we have rules and we have a system that runs on the rules and we don't know who wrote them. The travelers who pass through sometimes have stories from other places — that there are villages out there with protagonists already in them, that some of those protagonists have asked the same question and gone looking for the answer. The travelers don't know what those people found. The travelers don't always come back through, either. The question is the question. You're not the first person in any village to ask it, but you're asking it on your first day, which is sooner than most."
+"I don't know. Nobody knows." She had hopped off the counter at some point and was standing now with her arms folded, looking at him with a steadier focus than she had given him before. "We've been here a long time, Drew, and we don't know who, and we don't know why. We have a town, we have rules, we have a system that runs on the rules, and we don't know who wrote them. The travelers who pass through sometimes have stories from other places, like that there are villages out there with protagonists already in them, and that some of those protagonists have asked the same question and gone looking for the answer. The travelers don't know what those people found. They don't always come back through, either. The question is the question. You're not the first person in any village to ask it, but you're asking it on your first day, which is sooner than most."
 She nodded at his mug.
 "Drink your tea. It's getting cold."
-He drank his tea. It was, in fact, getting cold. The kettle on the stove had given up whistling and was now sitting there in dignified silence. The mystery, he thought, was the actual point of all this. He could see it clearly now, the way a man finally sees something clearly only after his body has caught up to about three hours of cumulative shock. The girls and the village and the floating winking portraits were the surface of something. There was a *who* under it. There was a *why*. And nobody he had met so far knew the answers, or, if they knew, weren't telling him, which was its own kind of answer.
-He took another sip. He looked at her. She was watching him think, with her elbows back on the counter and her chin back on her fist and the wide red eyes patient in a way that was new on her.
+He drank his tea. It was, in fact, getting cold. The kettle on the stove had given up whistling and was now sitting there in dignified silence. The mystery, he thought, was the actual point of all this. He could see it clearly now, the way a man finally sees something only after his body has caught up to about three hours of cumulative shock. The girls, the village, the floating winking portraits, all of it was the surface of something. There was a *who* under it, and a *why*, and nobody he had met so far knew the answers, or, if they knew, weren't telling him, which was its own kind of answer.
+He took another sip and looked at her. She was watching him think, elbows back on the counter, chin back on her fist, those wide red eyes newly patient.
 "Last question," he said. "For now."
 "Mhm."
 "What happens if I do something. To you. Specifically. That you don't want?"
@@ -258,8 +254,5 @@ He looked at her.
 "None of your business until you've eaten something and put on dry pants." She was already turning toward the back room. "Dry pants, Drew."
 She was already moving for the back room. The portrait at the corner of his vision waved at him as she went, a little curtsey-wave, before it drifted with her out of his immediate field of view and parked itself politely off to the side, where it would be ready for him the next time he wanted it.
 Drew sat on his stool.
-The kettle on the stove had stopped whistling and started cooling. Banjo was asleep again. The shop smelled like wax and pine and faintly of fish, and the lures were swaying in the rafters, and a girl who had been twenty-two for two hundred and thirty years was banging around in a back room looking for trousers that would fit him, and somewhere outside the shop the village he had been the Main Protagonist of for less than half a day was going about its afternoon, and the floating winking portrait of the girl in the back room sat patiently at the edge of his sight, ready to tell him, in numerical form, exactly how much she liked him.
-There was a *who* under all of this.
-There was a *why*.
-He was going to find them.
-He was going to find them eventually. Right now, though, he was going to put on dry pants.
+The kettle on the stove had stopped whistling and started cooling, and Banjo was asleep again. The shop smelled like wax and pine and faintly of fish, the lures were swaying in the rafters, and a girl who had been twenty-two for two hundred and thirty years was banging around in a back room looking for trousers that would fit him. Somewhere outside the shop, the village he had been the Main Protagonist of for less than half a day was going about its afternoon. The floating winking portrait of the girl in the back room sat patiently at the edge of his sight, ready to tell him, in numerical form, exactly how much she liked him.
+There was a *who* under all of this, and a *why*, and he was going to find them eventually. Right now, though, he was going to put on dry pants.
