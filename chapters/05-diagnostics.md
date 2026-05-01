@@ -70,7 +70,7 @@ She set down her cup and pinched the bridge of her nose for a half-second, looki
 "Branwen the carpenter. Branwen, who works wood, lives on the south end of the lane, two doors past the bathhouse, blue door with a crossed-axe sign. You'll like her. Everyone likes her. Be careful — she's also a flirt."
 "How careful?"
 "Don't punch above your weight, Drew." She unfolded her legs and stood up, brushing her palms on the front of the linen shirt. "Have a day."
-He drank the rest of his coffee-thing. He gathered up his rod from where Mira had leaned it against the counter. Banjo, who had finally levered himself off Drew's leg, was standing in the middle of the shop floor, alert and expectant, having heard the word *outside*, and was already starting his small impatient circles.
+He drank the rest of his coffee-thing. He gathered up his rod from where Mira had leaned it against the counter. Banjo had finally levered himself off Drew's leg and was standing in the middle of the shop floor, alert and expectant, having heard the word *outside*, and was already starting his small impatient circles.
 At the door Drew paused.
 "Mira," he said, turning back. "I'll be back this afternoon."
 She had her thumbs hooked in the pockets of her overalls and was watching him from across the floor of the shop.
@@ -103,10 +103,10 @@ The crossed-axe sign was wrought iron, hand-forged, and quite good. Drew paused 
 He went in.
 The front room of the carpenter's was not what he had expected. He had expected sawdust, beams, and stacked timber. There was sawdust and there were beams and there was timber, but there was also a daybed under a window with a fat striped cat asleep on it, a small bookshelf full of paperbacks Drew was almost certain had not been printed in this world, given the worn yellow spines, a teapot on a hot plate, a jar of wildflowers, and two windows thrown open to let the morning in.
 Branwen herself was at a workbench, planing a long board, with her back to him.
-She was tall, taller than Mira, bigger across the shoulders, longer in the arms, and carrying a working strength that registered to Drew before her face did. Her short, shaggy gray hair, he could already tell, was the same gray as the cat asleep on the daybed. The shirt she wore had its sleeves cut off at the shoulder and had clearly belonged, originally, to a man, but it fit her now in a manner that made it firmly her shirt. Her ears were pricked forward in concentration, twitching at the sound of the door. A long fluffy tail moved in slow patient arcs behind her, the way a cat's tail moves when the cat is concentrating on something it likes.
+She was tall, taller than Mira, bigger across the shoulders, longer in the arms, and carrying a working strength that registered to Drew before her face did. Her short, shaggy gray hair, he could already tell, was the same gray as the cat asleep on the daybed. The shirt she wore had its sleeves cut off at the shoulder and had clearly belonged, originally, to a man, but it fit her now in a manner that made it firmly her shirt. Her ears were pricked forward in concentration, twitching at the sound of the door. A long fluffy tail moved in slow patient arcs behind her, cat-concentrating-on-something arcs.
 "Sorry," Drew said, hovering just inside the door. "I — Mira sent me. I'm Drew."
 She straightened up slowly and turned around.
-She held his eye for a long second, the way a craftsman looks at a board, top to bottom and back up again, and Drew had the distinct sensation of being assessed for grain, knots, and resale value. Her eyes were a very pale green, and she had a chip out of one of her front canines. She was also, he had to honestly admit, having been overwhelmed by beautiful women now for two days running, extremely pretty.
+She held his eye for a long second, craftsman-style, top to bottom and back up again, and Drew had the distinct sensation of being assessed for grain, knots, and resale value. Her eyes were a very pale green, and she had a chip out of one of her front canines. She was also, he had to honestly admit, having been overwhelmed by beautiful women now for two days running, extremely pretty.
 Then she grinned. The grin was wide and a little crooked and pulled at the chipped tooth.
 "Drew," she said. Her voice was lower than he had expected, husky like she sang a lot or smoked sometimes or had simply been born with it. "Drew the Protagonist."
 "Drew the just-Drew," he said.
@@ -118,7 +118,7 @@ MOOD — [LOCKED] OPINION — [LOCKED] AROUSAL — [LOCKED] AVAILABLE REQUESTS �
 "Sit," Branwen said, jerking her chin at a stool by the bench. "Or stand. Whichever. You want tea? I've been told by reliable sources that you like tea now."
 "I — sure. Sure, tea."
 "Tea, dog?" she added, glancing down.
-Banjo, who had wandered in behind him, looked up at Branwen with his diplomatic face. The cat on the daybed opened one eye, assessed Banjo, closed it again, and was unbothered. A working professional acknowledging another working professional.
+Banjo, having wandered in behind him, looked up at Branwen with his diplomatic face. The cat on the daybed opened one eye, assessed Banjo, closed it again, and was unbothered. A working professional acknowledging another working professional.
 Branwen poured him tea, then herself, and kept moving while she did it, a little prowl-walk back and forth between hot plate and bench that was, Drew suspected, just how her body operated when it wasn't doing anything specific. She did not sit down, but gestured for him to.
 "So," she said, leaning a hip against the bench. "House."
 "House," Drew echoed.
@@ -135,7 +135,7 @@ Her eyes lit up.
 "Two?"
 "In case you make a friend."
 He laughed. He couldn't help it. "Branwen, yes. Yes to all of it."
-"Excellent." She set her tea down and dragged a sketchbook out from under her bench and was already drawing, fast, in pencil, while Drew watched. He saw the shape of a house come up out of the page in about thirty seconds, with a deck and a roofline and the suggestion of pilings in the water and a pair of doors set sliding into a wall, and Drew, who had spent his career adjacent to people who were very good at things, recognized very-good-at-things.
+"Excellent." She set her tea down and dragged a sketchbook out from under her bench and was already drawing, fast, in pencil, while Drew watched. He saw the shape of a house come up out of the page in about thirty seconds, with a deck and a roofline and the suggestion of pilings in the water and a pair of doors set sliding into a wall. Drew had spent his career adjacent to people who were very good at things, and he recognized very-good-at-things.
 She turned the sketchbook around. She had drawn it.
 "That's — Branwen, that's a real building."
 "It can be." She tapped the pilings with the tip of her pencil. "There's a stretch of bank between Mira's shop and the deep bend of the creek that's been waiting for one of these. Pilings will go through clean, the orientation's right for a wraparound, and the slips can run out into the bend without bothering the chubchirps. I'll claim it for you tomorrow. We have to talk gold. I have to work out a materials list. You have to get me logs." She glanced up at him over the sketchbook. "You any good with an axe?"
@@ -178,7 +178,7 @@ It was a beautiful axe, double-bitted, the head a dark steel with a single small
 "Don't thank me yet. Come back with logs."
 He came back, several hours later, with logs.
 The woods north of the village were, he discovered, very pleasant to cut trees in.
-The trees were cooperative. They were the wrong-different green he had noticed yesterday on the path, but their wood was real wood, and his axe bit into them properly, and they came down in directions he aimed them in. Banjo, who had elected himself foreman, sat at a safe distance on a flat rock and supervised unflappably, confident in the dog-specific way that this team had a clear leader and was not him.
+The trees were cooperative. They were the wrong-different green he had noticed yesterday on the path, but their wood was real wood, and his axe bit into them properly, and they came down in directions he aimed them in. Banjo had elected himself foreman, and sat at a safe distance on a flat rock supervising unflappably, confident in the dog-specific way that this team had a clear leader and was not him.
 Drew worked.
 He had not done sustained physical labor since the divorce had eaten his gym habit, and he had forgotten how good it felt. The first tree was hard, the second harder, the third easier. He felled the third one cleanly, with a precise notch and a clean back-cut, and Banjo applauded, which was the only word for it. The dog woofed at him once, sharply, and wagged his tail in big slow arcs, and Drew, hot and breathing hard with sap on his hands, laughed out loud at him.
 He stripped the branches and cut the trunks into rough logs. He had eight of them on the ground, lined up, sap-fragrant, when he realized he did not know how he was going to carry them back to the village.
@@ -191,7 +191,7 @@ He thought *inventory*. The panel chimed. A clean grid unfolded itself in his pe
 He thought *log* at the nearest log on the ground.
 The log dissolved into motes of light and reappeared as an icon in a fresh slot, labeled *Fir Log (raw)*, with a small ×1 underneath it.
 "Banjo," Drew said, "we are about to become extremely productive."
-Banjo, who had no idea what was happening but supported the sentiment, woofed.
+Banjo had no idea what was happening, but he supported the sentiment. He woofed.
 Drew put eight logs into his inventory in the time it took to breathe and felt, in the body sense, that he had not just lifted eight logs, which he had not. He stood in the small clearing of stumps. He looked at the stumps. He thought, *trees regrow tomorrow*, and shook his head.
 "Game logic," he said to no one. "Sure."
 He sharpened his axe with a stone Branwen had given him, slung it over his shoulder, and headed back toward the village.
@@ -202,7 +202,7 @@ He thought about Mira, specifically: her short black hair and the strip of ribbo
 He had been told, in plain language, by every woman he had spoken to in the last twenty-four hours, that he was the village's protagonist. He had been told, also in plain language, that the system was a panel, the panel was the rules, and the rules were forgiving, because the make-up loop was, by Mira's own words, kind of the point. He had been handed, in summary, a video game and a gauge.
 He was, he was willing to admit to himself, kind of stoked about it. He was thirty-one, recently divorced, and had spent eleven months waking up alone in an apartment with a country station he had not bothered to change, and he had been told he was now in a place where the women were NPCs running on a system that rewarded him for paying attention and forgave him for poking at the limits.
 He noticed, while he walked, that the small voice in his head that would have flagged this on Earth was not currently flagging this. The voice had not gone silent. It had read the rules, looked at the gauge, watched Mira coach him through the use of both, and decided to wait this out. He was, he was beginning to suspect, the kind of man who, given a forgiving sandbox, was going to find out what it actually forgave. He wasn't certain he liked that about himself, but he was certain he was going to do it anyway.
-He was also aware, at the back of his head, that he was thinking about Mira right now in a different register than the one in which he had thought about her over the cheese yesterday, or the one in which he had thought about her when she said *yes* against his shoulder on the dock. The cheese-Mira and the yes-Mira had felt like a person. The Mira he was walking back to right now felt, for the duration of this particular walk, more like a panel. He noticed this. He did not, on inspection, especially mind it. He intended to find out what the chart actually permitted, which was not a thing he could do by sitting on her dock catching chubchirps and being polite.
+He was also aware, at the back of his head, that he was thinking about Mira right now in a different register than the one in which he had thought about her over the cheese yesterday, or the one in which he had thought about her when she said *yes* against his shoulder on the dock. The cheese-Mira and the yes-Mira had felt like a person. The Mira he was walking back to right now felt, for the duration of this particular walk, more like a panel. He noticed this, and didn't especially mind it. He intended to find out what the chart actually permitted, which was not a thing he could do by sitting on her dock catching chubchirps and being polite.
 He started walking faster.
 Mira was on the back deck when he came around the side of the building.
 She had a small basket of laundry in her arms and was hanging shirts on a line strung between the deck rail and a cedar post, and she had her short black hair tied back with a strip of ribbon, and she was humming. She turned when she saw Drew, the wet shirt in her hands forgotten, and her face did the bright-immediate thing it had done yesterday on the path.
@@ -221,7 +221,7 @@ He stood up. He hugged her.
 It was, to his own mild surprise, a perfectly normal hug. She fit neatly under his chin, and her arms came up around his shoulders and squeezed back without hesitation, the way a friend's hug squeezes. She smelled herbal-clean, the way she had yesterday, and her hair brushed his jaw. The number on her panel ticked from 42 to 44. The portrait at the corner of his vision was beaming with its hands clasped at its chest.
 He did not let go.
 He took his time with it. He slid the hand at the small of her back lower, deliberately, and palmed her where he had told himself, back there on the path, he was going to.
-She made a small noise against his shoulder. *Hey.* She did not pull away, her arms stayed loose around his shoulders, but she squirmed a little, the way a cat squirms when it has been picked up wrong, and made the noise again, less muffled. *Drew.*
+She made a small noise against his shoulder. *Hey.* She did not pull away, her arms stayed loose around his shoulders, but she squirmed a little, the kind of squirm a cat manages when it has been picked up wrong, and made the noise again, less muffled. *Drew.*
 The number dropped from 44 to 37. The Mood readout, which had been a soft pleased-green, shifted to a flicker of pinker-amber and the word MOOD read *Annoyed.* The portrait at the corner of his vision crossed her arms in his peripheral vision while the actual Mira was still pressed against his ribs.
 He held the hand there for another half-second, just to confirm the read, and let her go.
 She stepped back, crossed her arms for real, exactly the way the portrait had, and raised one eyebrow. The annoyance on her face was, Drew could see it clearly now, exactly the annoyance her face had been wearing yesterday after the first slap, the same costume from the same drawer.
@@ -265,7 +265,7 @@ She tilted her head the other way. The portrait tilted with her.
 "Yeah, but —"
 "But what?" She wasn't being defensive. It was a real question.
 He didn't have a good answer to that, because he was not entirely sure what the *but* was. The *but* was somewhere in his chest, and he did not enjoy noticing it there, because the *but* was a thing from his old life, where you did not grab a woman who had not invited you to grab her, and where, if you did, she was upset for considerably longer than four seconds and considerably more than seven points worth, and where she did not then bury her nose in the apology bouquet and ask you what *else* the two of you were doing today.
-The *but* was not, on inspection, a thing Mira had any obligation to. It was a thing he had brought with him, in his luggage, from the country he no longer lived in.
+The *but* was not a thing Mira had any obligation to. It was a thing he had brought with him, in his luggage, from the country he no longer lived in.
 He tried again anyway.
 "You're not — you're really not bothered."
 "I was bothered. I yelped. You fixed it." She frowned briefly, the way someone frowns when asked the same question they've already answered three times. "Drew, am I supposed to be more bothered?"
@@ -320,9 +320,9 @@ Drew pulled the hand back and lifted both of them in a not-sorry surrender. "Ref
 "That one's not for today," she said, mouth fighting a small twitch.
 "Got it."
 He patted her on the head, which was for-today, apparently. The number ticked from 44 to 45.
-The portrait at the corner of his vision rolled her eyes at him, fondly, and the actual Mira beside him did the same, fondly, and Drew, who had spent the better part of his morning earning and spending affection in approximately equal measure, found that he was grinning.
+The portrait at the corner of his vision rolled her eyes at him fondly, and the actual Mira beside him did the same. Drew had spent the better part of his morning earning and spending affection in approximately equal measure, and he found that he was grinning.
 "Go give Branwen her logs," Mira said, straightening up off the rail and giving him a small shove toward the deck stairs. "You owe her logs. Come home for dinner. Please."
 "I will," he said.
 "Mhm." She didn't sound convinced, but she was smiling.
-He kissed her on the top of her head on his way out, briefly, because she was leaning on the rail with the bouquet beside her elbow and it seemed like the move. The number ticked from 45 to 48. The portrait at the corner of his vision blushed all the way down to her collarbone, and so did the actual Mira, and Drew, who had a pile of logs in his inventory and a long afternoon ahead of him, picked up his axe and went.
+He kissed her on the top of her head on his way out, briefly, because she was leaning on the rail with the bouquet beside her elbow and it seemed like the move. The number ticked from 45 to 48. The portrait at the corner of his vision blushed all the way down to her collarbone, and so did the actual Mira. Drew had a pile of logs in his inventory and a long afternoon ahead of him. He picked up his axe and went.
 Banjo went with him. The portrait stayed.

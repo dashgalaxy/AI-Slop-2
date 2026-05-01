@@ -24,7 +24,7 @@ His desk phone rang. He hit the speaker without looking and kept typing.
 "Front bucket's drifting down when she idles."
 "How fast?"
 "Inch a minute, maybe."
-He stopped typing. Kelsey, who had heard him take roughly nine hundred of these calls, made a *go ahead* gesture and started scrolling her phone.
+He stopped typing. Kelsey had heard him take roughly nine hundred of these calls. She made a *go ahead* gesture and started scrolling her phone.
 "Pilot pressure's bleeding off through the load-check valve," Drew said, leaning back in his chair. "Probably a chunk lodged on the seat. Have Eric pull the valve, blow it out, eyeball the seat for pitting. If it's pitted I'll overnight you a new one."
 "You're a saint, Drew."
 "I'm a parts guy." He reached over and tapped the speaker button. "Tell Eric I said his beard looks dumb."

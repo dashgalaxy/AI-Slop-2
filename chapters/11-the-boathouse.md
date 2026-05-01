@@ -1,7 +1,7 @@
 # Chapter 11: The Boathouse
 
 The whole village came.
-Drew, who had been told they would, had not entirely believed it. By the time the third bell rang, the lane between Mira's shop and the bank of the creek that the boathouse was tied to had filled with every single woman whose name Drew had learned, plus a number whose names he had not yet learned, plus several more in the back who he was reasonably sure were Branwen's cousins coming out of hiding for the occasion. Iren Holloway came too, with her tortoiseshell cat on her shoulder, and four foxes trailed Vesha at a discreet distance. There were maybe sixty people. Drew, who had not yet successfully imagined that there were sixty people in Mireval, was learning otherwise.
+Drew had been told they would, and had not entirely believed it. By the time the third bell rang, the lane between Mira's shop and the bank of the creek that the boathouse was tied to had filled with every single woman whose name Drew had learned, plus a number whose names he had not yet learned, plus several more in the back he was reasonably sure were Branwen's cousins coming out of hiding for the occasion. Iren Holloway came too, with her tortoiseshell cat on her shoulder, and four foxes trailed Vesha at a discreet distance. There were maybe sixty people. Drew had not yet successfully imagined that there were sixty people in Mireval. He was learning otherwise.
 Mira was at the front in a dress he had not seen her in before, soft blue like a clear lake afternoon, her hair tied back with a strip of green ribbon. Lyselle was at her shoulder in the cream-colored sweater, with her white braid laid carefully forward this morning instead of back. Branwen stood at the door of the boathouse with one proprietary hand on the doorframe, possessive of the thing she had built, and the other holding a small, theatrical-looking brass key on a leather cord.
 The whole village was looking at Drew.
 "Right," Drew said, and then said nothing else for a beat, because that was as far as he had thought the speech.
@@ -15,7 +15,7 @@ The village laughed.
 The cat purred against Drew's neck. He took the key from Branwen.
 He opened the door.
 The boathouse was, as boathouses went, beautifully empty. The crowd flooded in. Pip set candles on every flat surface within reaching distance and lit them in the same moment, which was, Drew assumed, a chandler trick. Vesha brought a pot of stew and put it on the new hearth, which Branwen had laid the fire in already, and the stew began to do its work. Tessa and Little Tess unrolled a runner on the front-room floor that they had, between them, evidently spent some part of the last month making, and which was a long quiet pattern of fish and reeds in green and brown that brought the room together immediately. Ophelia produced a pitcher of something cold that smelled of mint. Hazel brought him a second beard ribbon to match the first, and ducked behind Vesha before he could thank her. Iri came in last, set a small wooden box of chocolates on the mantel, made eye contact with Drew, and said, "For you, Halloran. Not for Lyselle." She walked back out without further comment.
-Lyselle, who had been watching this, looked at Drew like a woman who was being publicly out-thoughtfulled by a younger woman and had decided, on balance, to be pleased about it.
+Lyselle had been watching this. She looked at Drew like a woman being publicly out-thoughtfulled by a younger woman and choosing, on balance, to be pleased about it.
 "Iri got the better gift," Lyselle said.
 She had not, Drew noticed, taken her eyes off the small wooden box on the mantel since Iri had set it there.
 "You will not be left empty-handed," Drew said.
@@ -97,7 +97,7 @@ The boathouse, on its first night, was not unused.
 He woke once, very late.
 He was not sweating. He had not, this time, dreamed.
 He lay between Mira and Lyselle in his new bed, with the rosemary-and-citrus candle burning low on the windowsill and the soft sound of two women breathing on either side of him, and he lay still and listened to the lake.
-He was, on inspection, happy.
+He was happy.
 He was quietly, evenly happy, the kind of happy a man earned by building a thing with his own hands, being welcomed by a village, having a dog asleep two floors below him, two women in his bed, and on the inside of his chest, a warm settled thing that had not been there for a long time before this week.
 He was also, in the smaller harder spot at the back of his head, a man who had dreamed of a girl named Lila with Mira's red eyes and his color of hair, and who had watched, in the dream, a tall faceless administrative figure walk out through a piece of meadow that did not exist in any direction the meadow had directions, with his daughter over its shoulder.
 He thought, then, about the woman warm against his ribs.

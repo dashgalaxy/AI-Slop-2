@@ -7,7 +7,7 @@ He looked at her.
 He could see the dream still, every piece of it sitting on the inside of his eyelids like an afterimage, with a clarity that the previous mornings' dreams had not had. He was sweating through his shirt, his hair was wet at the temples, his hands were shaking, and the dream was there, in his head, intact, sitting in the seat the previous dreams had been edited out of.
 "Drew, breathe," Mira said, her voice low and steady. "Breathe."
 He breathed.
-He breathed for a minute. Mira, who had been a half-elf shopkeeper asleep beside him thirty seconds ago, was now a half-elf woman with her hand pressed against his sternum and her wide red eyes locked on his face, walking him through it like she was walking a horse through a spook. The portrait at the corner of his vision had its hands clasped at its little drawn chest, serious as an actual cartoon mother.
+He breathed for a minute. Mira had been a half-elf shopkeeper asleep beside him thirty seconds ago. Now she was a half-elf woman with her hand pressed against his sternum and her wide red eyes locked on his face, walking him through it like she was walking a horse through a spook. The portrait at the corner of his vision had its hands clasped at its little drawn chest, serious as an actual cartoon mother.
 "You're here," she said. "You're with me. Breathe."
 "I'm here," Drew managed. "I'm — yeah. I'm okay. Hi. I'm okay."
 "You scared me."
@@ -53,7 +53,7 @@ He kissed Mira's hair where it was sticking up against his cheek. The number on 
 She made a small contented Mira-sound in her sleep, which she had, after all, drifted into.
 He waited for morning.
 Lyselle did not, when he told her, look surprised.
-She sat in her parlor with both hands wrapped around her teacup and her white braid loose over her shoulder, and she let him tell it. He told it from the beginning, in the order it had been in. He told her the part about the older Mira and the older Lyselle, which made the actual Lyselle make a face she was not, on inspection, prepared to make in front of him, and which she covered with her tea. He told her about the figure, about Lila, and especially about how the figure had not looked at him, because that was the part of it he had been unable to stop coming back to between the bell rings on his walk over.
+She sat in her parlor with both hands wrapped around her teacup and her white braid loose over her shoulder, and she let him tell it. He told it from the beginning, in the order it had been in. He told her the part about the older Mira and the older Lyselle, which made the actual Lyselle make a face she had clearly not prepared to make in front of him, and which she covered with her tea. He told her about the figure, about Lila, and especially about how the figure had not looked at him, because that was the part of it he had been unable to stop coming back to between the bell rings on his walk over.
 Lyselle did not interrupt. When he was done, she set her teacup down. She did not pick it up again.
 "All right, Drew," she said quietly. "What did the figure walk toward?"
 "What?"

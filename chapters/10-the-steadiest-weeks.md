@@ -56,5 +56,5 @@ He had, every other night for four weeks, woken up sweating. None of the subsequ
 He intended to enjoy his boathouse.
 He also intended, quietly and over the long stretch, to be a man who was looking for the door. Not today, not tomorrow, but eventually, in the patient manner of an Angler who knew that the fish came when the fish came, he was going to find what was past where letters could follow.
 For now, though, there was furniture to buy and an empty house to fill.
-Banjo, who had decided in the last week that this porch was where he lived now, sighed without opening his eyes.
+Banjo had decided in the last week that this porch was where he lived now. He sighed without opening his eyes.
 Drew drank his coffee. The bell at the Hall rang the first of the day. Down the lane, the village began to wake up, easily and practiced, the way forty-some women who had been waiting his whole life for him to need them might.

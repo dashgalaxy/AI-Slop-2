@@ -57,7 +57,7 @@ The wide eyes went a little shy. She glanced down at the path between them, scuf
 "Such as. Um." She dragged the toe through the white stone. "The elder will say it better. She always does. It's just — humans are supposed to be, you know. They're the ones who—"
 She stopped. Looked up at him. Looked down again. Her cheeks were doing a thing.
 "Forget I said anything. The elder will say it. I'm so bad at this."
-Drew, who had been a salesman for nine years and could spot a person ducking a question across a crowded trade show floor, made a mental note to come back to this later. Out loud he said, "Sure. Forgotten. So. Tour?"
+Drew had been a salesman for nine years and could spot a person ducking a question across a crowded trade show floor. He made a mental note to come back to this later. Out loud he said, "Sure. Forgotten. So. Tour?"
 "Tour?" she echoed.
 "You said you'd take me into the village."
 "I did not say that."
@@ -98,7 +98,7 @@ He read it aloud.
 The reaction was not what he expected.
 The crowd went very still as one body. Then a soft *oh* rolled around them, somebody at the back actually clapped a hand to her mouth, and Mira, beside him, made a small sound he didn't have time to fully process, because the gold-eyed girl who had asked the question had already grabbed both of his hands in hers, beaming.
 "Oh my gods," she said, "oh, you're meant to be here—"
-Someone else had grabbed his elbow, somebody else the hem of his flannel. The whole crowd had pressed forward by half a step, the way crowds press forward when they've collectively decided they love something, and Drew, who had been rolled by enthusiastic crowds at exactly zero points in his prior thirty-one years of life, took a half-step back into Mira and said, in a voice he hoped didn't sound as strangled as it felt:
+Someone else had grabbed his elbow, somebody else the hem of his flannel. The whole crowd had pressed forward by half a step, the way crowds press forward when they've collectively decided they love something. Drew had been rolled by enthusiastic crowds at exactly zero points in his prior thirty-one years of life. He took a half-step back into Mira and said, in a voice he hoped didn't sound as strangled as it felt:
 "Why?"
 "Why what?" the gold-eyed girl said, still gripping his hands.
 "Why does it matter. That I'm an Angler. Specifically?"
@@ -115,7 +115,7 @@ The crowd parted.
 She came down the lane unhurriedly, white hair pulled back into a long simple braid that hung over one shoulder, skin paler than Mira's, almost luminous against the dark green of the dress she was wearing. The dress was cut to suggest she had nothing to apologize for and also nothing to prove, and on a younger woman it would have been a flirtation, while on her it was just what she had decided to wear today. Her ears tapered to a long point like Mira's, her eyes were the same wine-red but carried a longer history, and her face wasn't quite forty-something the way Drew's mother had been forty-something. It was forty-something the way a portrait could be, if the painter had been trying to convey a woman who had seen a great deal and forgiven most of it.
 Drew, whose brain had been overwhelmed roughly nine times in the past hour and had given up trying to triage what was relevant, dimly and neutrally observed that she was an absolute knockout.
 "He's overwhelmed," she said, looking past Drew at the crowd. "All of you, breathe." Her gaze tracked through the gathering, landing on each of them in turn. "Mira, dear, you've done a beautiful job. Branwen, my love, please. Hazel, you can let go of his shirt now."
-Hazel, who had not previously been holding his shirt, let go of his shirt.
+Hazel hadn't previously been holding his shirt. She let go of his shirt anyway.
 "I'm going to take him home for an hour," the elder went on. "He needs water, dry clothes, and three sentences he can actually finish. You'll all see him again before sundown." She turned to Mira. "Mira, sweetheart, I'll bring him by the shop after. Yes, the shop. Yes, you're hosting. Yes, I already decided. Don't argue."
 Mira hadn't argued. Mira had opened her mouth to argue, and now closed it again, looking faintly stricken.
 The elder held his eye for a long second. Her face did something Drew couldn't read, not pity or awe, but something quieter and more difficult than either, and then she smiled, a small smile, tired but warm.
@@ -123,7 +123,7 @@ The elder held his eye for a long second. Her face did something Drew couldn't r
 She turned and walked back up the lane the way she had come, without checking whether he was following. Drew followed. The crowd fell back to either side as he went, and he could feel them watching him go, especially Mira, who stood where he had left her in her cut-off overalls with her hands clasped at her bib and her red eyes wide.
 Lyselle's house was the second-to-last on the lane, set a little back from the others, with a small front garden Drew didn't have the botanical vocabulary to describe and a heavy oak door painted dark green. She held it open for him. He went in. She came in after him, closed the door, and slid a wooden bolt across it, and the bolt going home made a heavy, definite *thunk* that was, Drew thought, the first sound since he'd arrived in this place that had felt like a sound from his own world.
 "Sit," she said, without turning around. "There's a towel on the chair. Use it. I'll put on water."
-The room was a low-beamed parlor with a stone hearth at the far end, a kettle already on a hook above a small fire, two armchairs with embroidered cushions, and a low table between them. Drew sat. He used the towel. It was the softest towel he had ever touched in his life and he tried not to wreck it. He was wrecking it anyway, because he was soaked through, and the towel had not been designed for triage. Lyselle moved the kettle over the flame and pulled a small earthenware pot and two cups from a cupboard. She did all of this without speaking, and Drew, who had been talking and being talked at without break since he had hit the path twenty minutes ago, found himself surprisingly grateful for the silence.
+The room was a low-beamed parlor with a stone hearth at the far end, a kettle already on a hook above a small fire, two armchairs with embroidered cushions, and a low table between them. Drew sat. He used the towel. It was the softest towel he had ever touched in his life and he tried not to wreck it. He was wrecking it anyway, because he was soaked through, and the towel had not been designed for triage. Lyselle moved the kettle over the flame and pulled a small earthenware pot and two cups from a cupboard. She did all of this without speaking. Drew had been talking and being talked at without break since he had hit the path twenty minutes ago, and he found himself surprisingly grateful for the silence.
 She brought him a cup of something hot and sat down across from him.
 "Drink," she said, settling into the chair. "Don't ask what it is. It's safe and it'll help."
 He drank. It was not unlike strong chamomile if chamomile had a faint taste of pepper underneath it. After two sips his hands stopped shaking, which he hadn't noticed they were doing.
@@ -184,7 +184,7 @@ He thought *Summon Pet*, and the panel chimed in a different register than it ha
 For a second nothing happened.
 Then there was a wet, indignant *whuff* from the hearthstone, and a chocolate lab in a sodden orange life jacket scrambled to his feet on the rug with his claws skittering on the slate, looking around the room like he had just been woken up from the wrong end of a nap, and saw Drew on the chair across from him.
 The dog froze.
-Drew, who had not cried in front of another human being since his grandfather's funeral, made a sound he was going to be embarrassed about for the rest of his life.
+Drew had not cried in front of another human being since his grandfather's funeral. He made a sound he was going to be embarrassed about for the rest of his life.
 "Banjo." He was already out of the chair, on his knees on the rug, hand out. "Banjo, hey. Buddy. Hey."
 Banjo took two stiff, suspicious steps forward, sniffed Drew's outstretched fingers, sniffed his knee, then looked up and held Drew's face for a long second with the specific intelligence dogs have when they are being asked to verify something important. Then he climbed bodily into Drew's lap, pressed his soaked head into Drew's chest, and breathed.
 Drew put both arms around the dog and hung on. He said the dog's name a couple more times in a voice that wasn't really working. The lab smelled like wet lake, the kayak, and the back of his truck on a Saturday morning, and underneath that, faintly, like the laundry detergent Drew used on his own sheets, because Banjo slept on the bed and the smell got into his fur. Drew had not been aware that his sheets had a smell. He was aware now.
@@ -203,7 +203,7 @@ She slid the bolt back. Drew stood up, with some difficulty, because the dog had
 Mira was standing on the front step.
 She was sitting, actually. She was sitting on the front step with her arms wrapped around her knees and her chin on top of them, watching the lane, and when the door opened she scrambled to her feet and brushed off the back of her overalls and tried, unsuccessfully, to look like she had only just arrived.
 "Hi!" she said, a little too brightly. "I was — I was just heading over to see — *oh my gods, you have a dog.*"
-Banjo, who had decided that the woman in the cut-off overalls was friendly and also possibly held bacon, immediately pressed his entire wet body against her bare shins.
+Banjo had decided that the woman in the cut-off overalls was friendly and possibly held bacon. He immediately pressed his entire wet body against her bare shins.
 "This is Banjo," Drew said.
 "Hi, Banjo." Mira had already dropped to a crouch, both hands buried in his ears. "Hi. Hi."
 "Mira's going to host you," Lyselle said behind him. "Mira, dear, he needs a bath and food and not too many more questions today. Make him a bed in the upstairs room. Don't fuss."

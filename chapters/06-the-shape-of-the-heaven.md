@@ -1,7 +1,7 @@
 # Chapter 6: The Shape of the Heaven
 
 He woke up sweating again.
-He lay on his back in the nest of quilts and listened to his own pulse for a while. Banjo, who was once again a load-bearing wall in the architecture of the floor, was unbothered. Drew tried to remember the dream. There had been something about water, maybe, a voice he almost recognized, someone calling his name from the other side of a door he could not find. He couldn't remember any more than that, couldn't even remember enough of it to know what was supposed to be missing. By the time the early light started turning the rafters from black to charcoal, the dream had dissolved into the kind of nothing that was almost worse than something. The sweat on his temples was real, and the rest had simply not survived him waking up.
+He lay on his back in the nest of quilts and listened to his own pulse for a while. Banjo was once again a load-bearing wall in the architecture of the floor, and he was unbothered. Drew tried to remember the dream. There had been something about water, maybe, a voice he almost recognized, someone calling his name from the other side of a door he could not find. He couldn't remember any more than that, couldn't even remember enough of it to know what was supposed to be missing. By the time the early light started turning the rafters from black to charcoal, the dream had dissolved into the kind of nothing that was almost worse than something. The sweat on his temples was real, and the rest had simply not survived him waking up.
 "Yeah," Drew said quietly, to the ceiling. "Sure. Cool. Great."
 Banjo, in his sleep, sighed agreement.
 Mira came down the stairs at first light with her hair flattened on the same side it had been flattened yesterday, which Drew was starting to find very specifically charming. She was carrying a wooden tray. The tray contained, by his quick count, approximately the entire output of a small farm.
@@ -52,7 +52,7 @@ She straightened up, looking very pleased with herself.
 "There," she said. "Companion-tier kiss. First milestone act of physical affection. Welcome to my second-most-trusted social tier."
 "What's the most-trusted?" Drew asked.
 "There's a picture of my grandma at the top of the next one," Mira said, beaming. "You'll meet her soon."
-Drew, who had not been expecting to be ambushed by a peck on the cheek before his eggs were finished, rubbed the cheek with the back of his thumb. He decided, carefully, the way a man assesses his own life over a piece of warm bread, that he could get used to this.
+Drew had not been expecting to be ambushed by a peck on the cheek before his eggs were finished. He rubbed the cheek with the back of his thumb. He decided, carefully, the way a man assesses his own life over a piece of warm bread, that he could get used to this.
 "You should go," Mira said, picking up his empty plate and stacking it on hers. "Lyselle is patient but she's not, like, infinitely patient, you know? She'll have set aside a chunk of her morning for you. Take Banjo. Bring her something. She likes pastries from Pip's. Stop by Pip's first. Tell Pip I sent you."
 He pushed the last bite of bread around his plate and did not pick it up.
 "Mira," he said. "Thank you. For breakfast."
@@ -70,7 +70,7 @@ Pip's was a narrow shop two doors past the smithy, its windows full of dipped ca
 "Don't you skip the breathing part," Pip called.
 "I won't."
 "And come back, you," she said, pointing a small flour-dusted finger at him. "I want to look at you longer."
-Drew, who had not been looked at longer by anyone in a long time before this week, made his retreat with the box of buns held in front of his chest like a small flat shield. Banjo, beside him, was already chewing on the bun Pip had pressed into his teeth at the door.
+Drew had not been looked at longer by anyone in a long time before this week. He made his retreat with the box of buns held in front of his chest like a small flat shield. Banjo, beside him, was already chewing on the bun Pip had pressed into his teeth at the door.
 Lyselle's green door opened before he could knock.
 "You're late," she said.
 "You said sometime this morning," Drew said.
@@ -201,13 +201,13 @@ He thought about what Lyselle had said, without the pressure of having to say an
 *As real as they seem to be*, he thought.
 He decided, quietly and clearly, the same way he had decided things on yesterday's dock, that he was going to play. He was going to play hard, play decently, pay the system tax cheerfully, let himself like the people he liked, and let the cosmology be a thing he learned about over years rather than a thing he tried to crack in a week. Lyselle was right that he was a man on his third day. He could build a boathouse, level up a shopgirl, a carpenter, and an elder, and however many of the other women of Mireval would have him, and he could father, apparently, the next generation of denizens of other small heavens, somewhere down the long slow propagation of this thing he was now part of. Mostly, he could fish.
 He could, he realized, surprisingly and gladly, be happy, which he had not expected to feel any time soon.
-The sun went the rest of the way down. Banjo, who had been napping off and on, woke up, stretched, and looked at Drew expectantly. The bell rang the eighth, which Drew now understood to be a signal for villagers to start heading inside.
+The light failed the rest of the way. Banjo had been napping off and on. He woke up, stretched, and looked at Drew expectantly. The bell rang the eighth, which Drew now understood to be a signal for villagers to start heading inside.
 He stood up, gathered his things, and carried his perch, his rod, and his dog up the steps and into the back of Mira's shop.
 Then, on his way past the meadow at the south side of the dock, he stopped, stood for a beat in the dusk, and looked at the meadow, full of small purple things and yellow things and white star-shaped things. He thought about the gauge on Mira's panel, about how forgiving she had said it was, how she had walked him through the bonk-and-recover loop on her own deck like a tutorial, how she had told him in that hour, more than once, in slightly different words each time, that the gauge was the curriculum and the curriculum was the point.
 He thought about the half-formed plan he had been carrying around in his head all afternoon, which he had not, until this moment, been ready to look at directly.
 The plan, he saw now that he was looking at it, was to bypass.
 Whatever resistance Mira's body had to whatever he was about to ask of her tonight, he was going to be carrying enough flowers in his inventory to flatten that resistance, point for point, before it could organize itself into a no. He was going to overwhelm the gauge. He was, in the system's language, going to cheese it.
-He stood with that for another second in the dusk and noticed that the part of him that should have been embarrassed about it was not, on inspection, embarrassed about it. That part of him had read Mira's coaching on the make-up loop, watched her cross her arms and uncross her arms on cue, and concluded that she would, on balance, prefer the bypass to the negotiation. It had, frankly, been outvoted.
+He stood with that for another second in the dusk and noticed that the part of him that should have been embarrassed about it wasn't. That part had read Mira's coaching on the make-up loop, watched her cross her arms and uncross her arms on cue, and concluded that she would, on balance, prefer the bypass to the negotiation. It had, frankly, been outvoted.
 Then he opened his inventory, walked into the meadow, and started picking flowers. He kept at it, putting bouquet after bouquet into his inventory until the slot read *Bouquet (Wildflower) ×26*, and then he stopped because he had run out of meadow.
 The shop was dark when he came in.
 The lamp was lit on the counter, low, the way Mira left it when she had gone up to bed and didn't want the place black for him on his way in. There was a covered plate sitting on the table, with bread and cold meat and a chunk of the good cheese, and a small note on it in a careful handwriting that said *eat this, idiot. Bed in the back nest is made up. Banjo has his blankets too. Mira.*
@@ -266,13 +266,13 @@ He moved the hand at her collar to the open shirt itself and pushed it the rest 
 She let him.
 Her tits were small and very warm, paler than the rest of her, with two soft pink nipples that tightened the second the cool air of the bedroom touched them. He cupped the left one in his hand and ran his thumb over the nipple, watching her face, and Mira made a small startled sound and her eyes went briefly wide and then closed.
 The number ticked from 84 to 87. AROUSAL: *Wanting — 53.*
-"*Hey,*" Mira said, but it was a different *Hey* than any of the previous *Heys*, and it was not, the small remote analytic part of his brain still keeping notes flagged, accompanied by a number drop. The system was, on inspection, fine with this. The system was, on inspection, somewhere between mildly approving and frankly enthusiastic.
+"*Hey,*" Mira said, but it was a different *Hey* than any of the previous *Heys*, and the small remote analytic part of his brain still keeping notes flagged that it wasn't accompanied by a number drop. The system was fine with this, somewhere between mildly approving and frankly enthusiastic.
 He bent down and put his mouth on the same nipple his thumb had just been on.
 "*Drew* — "
 It came out small and strangled. The number ticked from 87 to 90. AROUSAL: *Aroused — 64.*
 He kept doing it. He worked the nipple with his tongue and felt her hand at the back of his neck tighten, and after a beat he switched to the other tit and did the same thing there, taking his time, watching the panel out of the corner of his eye while he watched her face out of the other corner. Mira had her head tipped back into the pillow, her short black hair had given up entirely on which direction it was supposed to be pointing in, and her ears were flushed dark at the tips. The portrait at the corner of his vision had both hands over its drawn-on mouth and was, he was almost sure, biting one of its drawn-on knuckles.
 She was not, Drew noted, talking. Since the *Drew*, she had not said anything at all. The small sounds she was making against the side of his face when he worked her nipples were sounds her body was making, not sentences a person was making, and the words she had been generating up to a minute ago, clinical, witty, Mira-shaped, were no longer in the room.
-He noted it. He had a working theory about what was happening, and the theory was: she was an Angler at *Tier: Companion*, and the dirty things that he was about to do to her were happening above her tier, so her panel was issuing her the responses it was rated for, which were *Hey* and *Drew* and the small involuntary sounds her body made when he touched her. The articulated speech was locked. The body, on inspection, was not.
+He noted it. He had a working theory about what was happening, and the theory was: she was an Angler at *Tier: Companion*, and the dirty things that he was about to do to her were happening above her tier, so her panel was issuing her the responses it was rated for, which were *Hey* and *Drew* and the small involuntary sounds her body made when he touched her. The articulated speech was locked. The body was not.
 He pulled back and stripped off his own shirt. Then his pants. Then the rest of it. His cock was already hard enough to be a logistics problem, and Mira, when she opened her eyes and looked down at it, made a small high noise in the back of her throat and said, "*Oh.*"
 That was, he noted, the entire sentence she had available to her on the topic.
 "Yeah," Drew said.
@@ -303,14 +303,14 @@ A new line wrote itself underneath. Drew read it in passing, panel-reading-brain
 AVAILABLE REQUESTS — [UNLOCKED] Request: Cum Inside Me Request: Pull Out
 He registered it without taking a position for tonight, on the grounds that he had not been a father in his previous country for any number of days and was not prepared to find out whether the system was generous with starter children.
 He started moving.
-He fucked her slow at first, because she was small and because he was trying to be a person about it, and because the panel was doing things in the corner of his vision he had not previously had access to. AROUSAL had moved off *Aroused* and into *Wanting It*, a tier he had not seen on her panel before, written in a softer, more saturated pink. The portrait had its hands clasped under its drawn-on chin, and was, he thought, on inspection, biting its lip.
+He fucked her slow at first, because she was small and because he was trying to be a person about it, and because the panel was doing things in the corner of his vision he had not previously had access to. AROUSAL had moved off *Aroused* and into *Wanting It*, a tier he had not seen on her panel before, written in a softer, more saturated pink. The portrait had its hands clasped under its drawn-on chin, and was, he thought, biting its lip.
 Mira's arms had come up and looped around his shoulders. Her ankles had hooked behind his back. She was making small sounds into his collarbone in a steady rhythm that matched his, and after a beat, when he started moving faster, the small sounds got louder and less small and turned, eventually, into his name.
 "Drew — Drew — *Drew* — "
 "Yeah," he said into her hair.
 He fucked her harder, the way her hips were asking him to, and the bed creaked under them in the small enthusiastic way old beds creak in old shops where the headboard had been built by someone who knew exactly what beds were for. The flower-mountain at the foot of the bed had, at some point, redistributed itself across both of them and the rest of the mattress, and there was a wildflower in Mira's hair, and another one stuck to Drew's elbow, and the smell of crushed petals and warm skin and the herbal-clean smell that was Mira's specifically had filled the small slant-ceilinged room.
 She came first.
 He felt her cunt clench around his cock in a series of fast hot pulses, her whole body went rigid against him, her nails dug into his shoulder blades, and she said his name one more time in a voice that had gone wrecked and high. The panel chimed approvingly. AROUSAL hit its cap and stayed there, the bar pulsing softly. AFFECTION ticked from 98 to 100, and then, instead of stopping, kept climbing past it, while the *Tier: Companion* under it dissolved and *Tier: Lover* slid into place.
-Drew did not, on inspection, last much past the tier change.
+Drew did not last much past the tier change.
 He pulled out at the last second, and *Pull Out* logged itself in a small acknowledging chime at the corner of his vision as he came on her stomach in long hot pulses, watching her face. Mira, still on the downslope of her own thing, made a small breathless sound and brought one hand down to where he had landed, trailing her fingers through it as scholarly-seriously as she had inspected his eyes on the path on the first day.
 "Huh," Mira said, looking at it.
 "What?" Drew said, breath still uneven.
@@ -337,7 +337,7 @@ She was quiet for a beat, breathing into his ribs. He could feel her thinking ag
 "I know you cheesed the system."
 He turned his head and looked down at the top of her head. Her hair was a small black disaster against the pale skin of his shoulder. He waited for the rest of it.
 "I clocked it the second the second bouquet came out of the inventory," she said, conversationally, as if she were telling him what the weather had been like in town that afternoon. "And I wanted you to know I clocked it. Because the system has me clock it. Mom said the system gets sad when nobody notices the cheese. So I'm noticing."
-He was, on inspection, smiling at the rafters.
+He was smiling at the rafters.
 "Are you mad about it?" he asked.
 "Hm?" She tipped her head up to look at him, eyes still soft.
 "The cheese. Are you mad."
@@ -353,7 +353,7 @@ He took the white star one out of her hand and tucked it behind one of her point
 "You're going to be all right."
 "I know," she said, and the *I know* was the same *I know* she had used at the back door yesterday afternoon when he had told her he would be back for dinner, a thing she said because the system gave her the line for it, and which Drew, lying in the dark with her warm against his ribs and her short black hair stuck up at the back, was choosing to take at face value.
 Drew lay in the dark with the smell of crushed wildflowers in his hair and a half-elf woman warm against his side and a panel going dimly and patiently in the corner of his vision, and he thought, for the first time since the squall, that he was probably going to be all right.
-He thought, also, that he was going to be buying a great many more flowers before this was done.
+He was also going to be buying a great many more flowers before this was done.
 He kissed the top of Mira's head, between her two warm pointed ears.
 "Night, Mira," he said.
 She mumbled something into his ribs that might have been *menace* and was asleep before she finished it.
