@@ -87,7 +87,7 @@ She poured them both tea, then sat down across from him with a small, dry, expec
 "I have questions. Mira said the higher our affection got, the more questions you were likely to answer."
 "Mira is essentially correct, although she has framed it like an extortion racket, which is also accurate." Lyselle took a slow sip of her tea. "Drink your tea."
 He drank his tea.
-"You may ask me three questions today, Drew." She set her cup down on the saucer with a precise small click. "Not because the system limits you — the system would let you ask me hundreds — but because I have been the elder of this village for two hundred and forty years and there are three answers I am willing to give in a single morning, and I would like you to think about which three before you start firing them. The other things you ask me about, I will tell you whether I'll answer. If I will, you'll get those answers as we get to know each other, in the language Mira likes to use. Yes?"
+"You may ask me three questions today, Drew." She set her cup down on the saucer with a precise small click. "Not because the system limits you, since it would let you ask me hundreds, but because I have been the elder of this village for two hundred and forty years, and there are three answers I am willing to give in a single morning, and I would like you to think about which three before you start firing them. The other things you ask me about, I will tell you whether I'll answer. If I will, you'll get those answers as we get to know each other, in the language Mira likes to use. Yes?"
 "Yes," Drew said.
 "Excellent. Begin whenever."
 He did not begin. He sat for a beat and looked at her, at the steady, unsurprised set of her eyes, at the long pale fingers curled around her teacup, at how the firelight set her hair into a soft shifting white he had not seen on a person before. He had, somewhere on the walk over, decided to lead with the smallest question. The smallest question, he had learned in nine years of selling parts to dairy farmers, was usually the one that opened the most doors.
@@ -245,7 +245,7 @@ Mira looked down at herself, and then up at him, and her cheeks went pink in the
 "Yeah," Drew said.
 "You were waiting for the right moment."
 "Yeah," he said again.
-She propped herself up on her elbow and looked at him with the specific small wide-eyed look of a woman who had just understood the size of the question she was about to ask.
+She propped herself up on her elbow, eyes wide and small with the dawning understanding of how big a question she was about to ask.
 "How many flowers did you bring?"
 He grinned at her in the dark.
 He opened his inventory.
@@ -254,7 +254,7 @@ Mira sat in the middle of it, her sleep-shirt open, her hands clapped over her m
 The number ticked from 60 to 71. To 78. The MOOD flicker died away from amber back to a soft green, *Pleased,* and then darkened toward something Drew did not have a name for, and the AROUSAL line, which had been parked, started climbing in slow steady increments while neither of them moved.
 "Drew Halloran," Mira said, behind her hands. "You *prepared* for this."
 "I prepared for this," he said.
-"That is the most ridiculous thing you have ever done."
+She shook her head at the flower-mountain. "That is the most ridiculous thing you have ever done."
 "I know," Drew said.
 Down a floor, the lamp on the counter went out on its own, the way lamps go out when nobody is paying attention to them. Banjo, in his nest of blankets, opened one eye, considered the situation, closed it again, and went back to sleep, deeply unbothered, the way a chocolate lab who had heard a lot in his six years of life chose, on certain nights, to mind his own business.
 Up in the small slant-ceilinged room, Mira lowered her hands from her mouth.
@@ -271,7 +271,7 @@ The flower-mountain at the foot of the bed dimmed by a fraction. The panel chime
 The system, on inspection, was being paid in flowers.
 He bent down and put his mouth on the same nipple his thumb had just been on.
 "*Drew* — " It came out small and strangled. The number dropped from 86 to 80. The flower-mountain dimmed another fraction. AFFECTION climbed back, 80 to 84 to 87. AROUSAL ticked up: *Aroused — 64.*
-He kept doing it. He worked the nipple with his tongue and felt her hand at the back of his neck tighten, and after a beat he switched to the other tit and did the same thing there, taking his time, watching the panel out of the corner of his eye while he watched her face out of the other corner. Mira had her head tipped back into the pillow and her short black hair had given up entirely on which direction it was supposed to be pointing in. Her ears were flushed dark at the tips. The portrait at the corner of his vision had both hands over its drawn-on mouth and was, he was almost sure, biting one of its drawn-on knuckles.
+He kept doing it. He worked the nipple with his tongue and felt her hand at the back of his neck tighten, and after a beat he switched to the other tit and did the same thing there, taking his time, watching the panel out of the corner of his eye while he watched her face out of the other corner. Mira had her head tipped back into the pillow, her short black hair had given up entirely on which direction it was supposed to be pointing in, and her ears were flushed dark at the tips. The portrait at the corner of his vision had both hands over its drawn-on mouth and was, he was almost sure, biting one of its drawn-on knuckles.
 She was not, Drew noted, talking. Since the *Drew*, she had not said anything at all. The small sounds she was making against the side of his face when he worked her nipples were sounds her body was making, not sentences a person was making, and the words she had been generating up to a minute ago, clinical, witty, Mira-shaped, were no longer in the room.
 He noted it. He had a working theory about what was happening, and the theory was: she was an Angler at *Tier: Companion*, and the dirty things that he was doing to her were happening above her tier, so her panel was issuing her the responses it was rated for, which were *Hey* and *Drew* and the small involuntary sounds her body made when he touched her. The articulated speech was locked. The body, on inspection, was not. And the bank of flowers in his inventory, the ridiculous, comically-disproportionate stockpile of bouquets he had walked back from Lyselle's with in the dusk, was, with each tier violation, paying the bill.
 The flower-mountain at the foot of the bed was, he noted, smaller than it had been three minutes ago. Not by much. By a few bouquets' worth.
@@ -336,7 +336,7 @@ OPINION OF DREW *Mine.*
 Drew read it, then set it onto the pile of things he was going to think about later.
 "Drew."
 "Yeah," he said to the rafters.
-She was quiet for a beat, breathing into his ribs. He could feel her thinking against his side, the small focused stillness of a person organizing a sentence.
+She was quiet for a beat, breathing into his ribs. He could feel her thinking against his side, gone briefly still and focused while she organized a sentence.
 "I know you overpaid the make-up loop."
 He turned his head and looked down at the top of her head. Her hair was a small black disaster against the pale skin of his shoulder. He waited for the rest of it.
 "I clocked it the second the second bouquet came out of the inventory," she said, conversationally, as if she were telling him what the weather had been like in town that afternoon. "And I wanted you to know I clocked it. Because the system has me clock it. Mom said the system gets sad when nobody notices the overpay. So I'm noticing."
@@ -360,9 +360,5 @@ He thought, also, that he was going to be buying a great many more flowers befor
 He kissed the top of Mira's head, between her two warm pointed ears.
 "Night, Mira," he said.
 She mumbled something into his ribs that might have been *menace* and was asleep before she finished it.
-Drew closed his eyes.
-The panel stayed quiet.
-Outside, the creek kept running. The village kept sleeping. Somewhere, in whatever passed for its ledger, the system made a small satisfied note and turned the page.
-Drew, in the dark, smiled.
-He really did need to start on that boathouse.
-But first, in the morning, he was going to have to apologize for the flowers on the floor.
+Drew closed his eyes, and the panel stayed quiet. Outside, the creek kept running and the village kept sleeping, and somewhere in whatever passed for its ledger, the system made a small satisfied note and turned the page.
+Drew, in the dark, smiled. He really did need to start on that boathouse, but first, in the morning, he was going to have to apologize for the flowers on the floor.

@@ -2,7 +2,7 @@
 
 The bait and tackle shop sat at the south end of the lane, where the village ran out and the path bent down toward the water. It was a long, low building with a slate roof, a hand-painted wooden sign reading HOLLOWAY'S — TACKLE, BAIT, SUNDRIES in faded blue letters, and a small front porch with a single rocking chair on it that had clearly been there longer than Drew had been alive.
 Mira was talking the whole way over.
-She talked about the shop, which she had taken over from her mother, who had taken it over from her own mother, who had supposedly built the original of it three hundred and some years ago when the village was just a fishing camp. There was the porch chair, with a cushion she had embroidered when she was twelve and was unreasonably proud of. Then she got onto her grandmother, who lived two doors down and was going to lose her mind when she found out about Drew, and who Drew was absolutely not going to be allowed to escape meeting at some point in the next two days. Drew, walking beside her with his clothes dripping a slow thin trail of lake water onto the white stone of the lane, mostly listened. Banjo, between them, occasionally bumped his head against the back of Mira's calf in a way Drew was almost positive was strategic.
+She talked about the shop, which she had taken over from her mother, who had taken it over from her own mother, who had supposedly built the original three hundred and some years ago when the village was just a fishing camp. There was the porch chair, with a cushion she had embroidered when she was twelve and was unreasonably proud of. Then she got onto her grandmother, who lived two doors down and was going to lose her mind when she found out about Drew, and who Drew was absolutely not going to be allowed to escape meeting at some point in the next two days. Drew, dripping a slow thin trail of lake water onto the white stone of the lane as he walked beside her, mostly listened. Banjo, between them, kept bumping his head strategically against the back of Mira's calf.
 "Okay," Mira said, fishing a small iron key out of the front pocket of her overalls. "Okay, here we are. Mind the step, it's higher than it looks. Mind the dog, he's already eaten one of my mom's needlework cushions and he's going to want to eat the other." She glanced down at Banjo as she fit the key into the lock. "Sorry, dog, I don't even know your name, I'm sorry, I'm Mira, you can keep doing what you're doing."
 Banjo, having sniffed the rocking chair cushion and apparently approved of it, was already trying to climb onto it.
 "Banjo, off," Drew said.
@@ -69,15 +69,15 @@ He walked her through it. He read off her name, her race, her age, her class. Sh
 He kept going. He got to *Affection 8 / 100, Tier: Stranger.* He read it out. The portrait at the corner of the window did a little half-shrug and looked vaguely apologetic about the 8.
 "Eight," Mira said. "Hm."
 "Is that bad?"
-"It's not bad. It's, um. It's higher than I expected, actually."
+She wrinkled her nose at the bowl. "It's not bad. It's, um. It's higher than I expected, actually."
 "Higher."
 "Most people start at zero with a stranger."
-"Why are we higher?"
+Drew set his mug down. "Why are we higher?"
 "I don't know!" She said it brightly, but he was a salesman, and he could hear the part of *I don't know* that meant *I have a guess.* "Maybe because you're an Angler and I'm an Angler. Maybe because I, um. I helped you up the path. There's a starter bonus for the first villager you meet, sometimes. It varies." She lifted her shoulders. "I don't know, Drew, I really don't, the system doesn't always tell us why."
 He let it sit. She was telling something almost-true and ducking the whole-true, and he had two long lifetimes of practice spotting that exact kind of duck. He let it sit because pushing on it would have made her hide, and because, frankly, the part of his brain that was supposed to be running social interrogation was currently being run by the part of his brain that was overwhelmed by the floating window with the winking portrait of his hostess.
 "Okay," he said. "What are the locked ones?"
 "Mood, opinion, arousal, available requests. Those open up as your tier goes up." She started ticking them off on her fingers. "Stranger to Acquaintance unlocks Mood. Acquaintance to Friend unlocks Opinion. Friend to Colleague unlocks Available Requests. Colleague to Companion unlocks Arousal. Then Companion to Lover, Lover to Soulmate. Seven tiers."
-"Arousal," Drew said flatly, in the way a man says a word when he is trying to decide whether to ask follow-up questions.
+"Arousal," Drew said flatly, the way somebody might say a word he was trying to decide whether to ask follow-up questions about.
 "Yes."
 "That's just — that's a tab."
 "It's just a tab. It's a number out of a hundred. It's not weird, Drew."
@@ -139,7 +139,7 @@ Drew shook his head. "Right, sure, but did you feel — did the system. Did it t
 "A thermometer."
 "A thermometer."
 "That. Okay. Sure."
-He raised his hand again. He paused. He considered, briefly, the lifetime of social training that had taught him not to put his hand on women's heads without permission, and then he considered the fact that he was apparently in a video game now, and Mira was at this moment leaning very slightly forward in the way of someone who was not, on balance, opposed to where his hand was going.
+He raised his hand again, then paused. A lifetime of social training had taught him not to put his hand on women's heads without permission, but he was apparently in a video game now, and Mira was leaning very slightly forward like a woman who was not, on balance, opposed to where his hand was going.
 He patted her head.
 The number went from 9 to 11. The locked MOOD readout flared briefly with a small upward arrow before going dark again. The locked AROUSAL readout, even though it was locked, did something he couldn't quite see, a flicker at its edge, a pulse, a hint of color where there had been only black before. The portrait beamed at him. The actual Mira, two inches under his hand, beamed up at him at the exact same time, in the exact same way, and for a half-second Drew couldn't tell which one he was looking at.
 "That was a good one," Mira reported, eyes closed.

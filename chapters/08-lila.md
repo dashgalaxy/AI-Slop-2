@@ -33,8 +33,8 @@ She went still under his hand for a beat.
 Mira put two fingers under his chin and tilted his face toward hers.
 "Drew Halloran," she said, "I love you too. Even when you say it like that. Especially when you say it like that, given the circumstances you said it under, which were upset man at three in the morning, which is a very Drew way to do it, but —" She gave him a small soft smile. "Yeah. Mhm. Yeah. Lie down. I'll stay awake until you're asleep."
 The number on the panel had ticked, while she was talking, from 91 to 96. He did not remember when she had passed 90. The *Tier: Lover* under it gleamed steady.
-He lay down. She lay down beside him with her hand on his chest and did not, that he could tell, sleep. Banjo, on his feet, sighed once and stayed.
-Drew lay there for a long time and watched the rafters in the lamplight and did not, this time, try to forget.
+He lay down, and she lay down beside him with her hand on his chest, not sleeping, as far as he could tell. Banjo, on his feet, sighed once and stayed.
+Drew lay there for a long time, watched the rafters in the lamplight, and did not, this time, try to forget.
 The dream had been very specific.
 Mira had been beside him, laughing at something he had just said, with her head tipped back, and she had been, Drew, lying in the bed in the present, made himself look at this part rather than past it, she had been changed. Not older, exactly. The freezing was still on her. But she had been a woman who had lived through some years rather than waited through them, and the difference, in the dream, had been visible on her face, in a register Drew could feel but not name. There had been a woman next to her too, with long pale hair and a chocolate-flushed cheek, sitting cross-legged in a green shawl, drinking tea out of a dented metal cup, and that woman had been Lyselle, with the same lived-through quality on her, and the same freezing intact underneath it.
 Branwen had been chasing somebody across the meadow. Banjo had been chasing Branwen.
@@ -44,8 +44,7 @@ She was maybe six, possibly seven. She had Mira's red eyes and dark brown hair D
 And then the figure had stepped through the meadow.
 It came from a direction that did not exist in the meadow. It was tall, administratively tall, which was the worst part of it. It wore robes that moved like the water in Mira's creek, slow and purposeful, and where its face should have been there was a long, calm, unfilled blank, and Drew, in the dream, had been on his feet before he had decided to be, and Mira had stopped laughing.
 The figure had walked across the meadow without hurrying, the way somebody walks toward a piece of paperwork. It hadn't looked at Drew, hadn't looked at Mira. It had reached down with a hand the color of nothing in particular, picked Lila up off her feet the way you pick up a folder, turned around, and walked back toward the direction it had come from. Lila had reached one hand back for Drew over the figure's shoulder, calmly, not crying yet, just the slow coming-to of a child who had not yet processed what was happening. The dream had let Drew run after them across the meadow for a long time, against grass that did not give under his feet, until the figure stepped past the meadow entirely and was gone, with Lila over its shoulder, and the meadow folded in.
-He had screamed.
-He had screamed without making a sound for a long time, and then, somewhere in the seam between the dream and the bed, the system had handed him back his lungs, and he had screamed properly, and Mira had been there.
+He had screamed. For a long time it had been a soundless scream, and then, somewhere in the seam between the dream and the bed, the system had handed him back his lungs, and he had screamed properly, and Mira had been there.
 He lay in the dark and reviewed it.
 He noted, with the analytical small piece of his brain that had been a salesman of agricultural parts for nine years, that he had been allowed to remember this one. The previous dreams had been wiped, this one had not. Something had decided he was ready, or had decided he needed it, or, most plausibly given everything Lyselle had told him, had not been able to wipe it because it had not been a dream-from-the-system.
 It had been a dream-of-something-the-system-was-trying-not-to-have-him-think-about.
@@ -89,7 +88,7 @@ He started to argue. She lifted one long pale finger.
 "Okay," Drew said.
 "You may also, eventually, never tell her at all. That is also a choice. I am not, today, asking you to make it. I am asking you to wait."
 "Okay."
-She looked at him with a face that the chocolate-flush of yesterday had not been on for some time, and which the long correspondence career had taught how to compose.
+She looked at him with a face that hadn't worn yesterday's chocolate-flush for some time, the kind of face her long correspondence career had taught her how to compose.
 "I am going to write to the elders this afternoon, Drew," she said. "All nine of them. I will tell them exactly what you told me, ask them whether anyone has dreamed a named child, and likely take the better part of a week to get the responses back. Then, you and I will sit down with whatever I have heard, and we will work out what to do next. Are we agreed?"
 "Yes," Drew said.
 "Until then." She picked up her teacup again at last. "Settle in. Build your boathouse. Level your women. Eat the village's food. Be a protagonist the way the village expected, because you cannot poke at a thing of this size from any other position than that of the protagonist, and the protagonist is what they have given you tools to be."

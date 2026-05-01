@@ -32,13 +32,13 @@ He stopped typing. Kelsey, who had heard him take roughly nine hundred of these 
 He hung up. Kelsey was watching him over the top of her phone, looking quietly satisfied, like she had just won an argument she hadn't been having out loud.
 "What?" Drew said.
 "You're fine when you're working."
-"I'm fine when I'm not working."
+He typed another line of the quote. "I'm fine when I'm not working."
 "Mhm." She didn't bother selling it.
 He went back to the quote. Kelsey did not leave. The Kelsey-buff on the desk was beginning to take on a permanent quality.
 "It's been almost a year, Drew," she said, quieter now.
 "Eleven months, three days," he said to the screen, "but who's counting."
 "You are, apparently."
-He glanced up. She had tilted her head at him in that specific way she always did right before getting sincere about something, and Drew had a pretty firm policy against sincerity in his office before five p.m.
+He glanced up. She had tilted her head at him the same way she always did right before getting sincere about something, and Drew had a pretty firm policy against sincerity in his office before five p.m.
 "Fishing tomorrow," he said, before she could land it. "Naskaw. Banjo's coming. I'll be off the water by two."
 "Text me when you're off," she said.
 "Always do."
@@ -51,17 +51,17 @@ Kelsey slid off the desk and tugged her coat straight. At the door she paused, t
 "Noted," Drew said.
 "Drew, I mean it." She turned her head just enough to put one eye on him over her shoulder.
 "*Noted*, Kelsey."
-She left. He finished the quote, hit send, and locked up the office at five-oh-six. The Shimano went in his bag in pieces. The bail spring would be at his door by Tuesday. The apartment would be quiet when he got there. None of those were problems he hadn't successfully ignored before.
+She left. He finished the quote, hit send, and locked up the office at five-oh-six. The Shimano went in his bag in pieces, the bail spring would be at his door by Tuesday, and the apartment would be quiet when he got there. None of those were problems he hadn't successfully ignored before.
 At four-thirty Saturday morning, Banjo was already in the kitchen with the life jacket in his mouth.
 Banjo was a six-year-old chocolate lab who had inherited Drew off Grandpa Hal two summers back, along with a Hobie kayak that had a nicer hull than anything Drew personally owned. The dog had figured out the connection between life jacket and lake within roughly nine minutes of moving in, and had been retrieving the life jacket from the hook by the door every morning since, regardless of whether they were going fishing. Banjo was an optimist.
 "Coffee first, bud," Drew said, stepping around him to get to the pot.
 Banjo did not believe in coffee first. Banjo communicated this by parking himself in the middle of the kitchen tile with the life jacket dangling from his jaws and tracking Drew's every step around the room, unblinking, like a dog who had achieved spiritual clarity on the question of priorities and was now waiting for Drew to catch up.
-Drew filled the thermos. He filled Banjo's water bowl, which Banjo ignored on principle. He carried the kayak out to the truck in the dark and strapped it to the rack while the dog supervised from the driveway and occasionally barked at a raccoon that wasn't there. By a quarter to five they were out on the county road, Banjo riding shotgun with his nose against the cracked window and the truck's heater clicking through its standard repertoire of complaints.
-The radio was on a country station Drew didn't actually like. His ex-wife had set it there before she moved out, he had been meaning to change it for eleven months, and somehow he never had. He hit the preset for NPR. NPR was hosting a panel on artisanal cheese. Banjo tilted his head at the dashboard like the dashboard had personally insulted him. Drew turned the radio off, and Banjo went back to monitoring the tree line for deer, which was the dog's actual job, and which the dog took very seriously.
+Drew filled the thermos and filled Banjo's water bowl, which Banjo ignored on principle, then carried the kayak out to the truck in the dark and strapped it to the rack while the dog supervised from the driveway and occasionally barked at a raccoon that wasn't there. By a quarter to five they were out on the county road, Banjo riding shotgun with his nose against the cracked window and the truck's heater clicking through its standard repertoire of complaints.
+The radio was on a country station Drew didn't actually like. His ex-wife had set it there before she moved out, he had been meaning to change it for eleven months, and somehow he never had. He hit the preset for NPR. NPR was hosting a panel on artisanal cheese. Banjo tilted his head at the dashboard like the dashboard had personally insulted him. Drew turned the radio off, and Banjo went back to monitoring the tree line for deer, which the dog had decided was his actual job and took very seriously.
 "You think Hannah likes labs?" Drew asked, glancing over.
 Banjo did not respond. His nose stayed pressed to the glass.
 "Yeah," Drew said. "Me neither."
-The lake parking lot was empty when they pulled in. Drew thumbed the weather one more time before he stowed his phone. Scattered clouds, west wind at eight, high of fifty-eight. He had fished in worse a hundred times. He had fished in worse last weekend.
+The lake parking lot was empty when they pulled in. Drew thumbed the weather one more time before he stowed his phone. Scattered clouds, west wind at eight, high of fifty-eight. He had fished in worse a hundred times, including last weekend.
 He clipped Banjo's life jacket on, lifted him into the bow well, and pushed off into water that lay almost insultingly calm.
 Grandpa Hal had called the deep hole half a mile out the Bowl, because the bottom dropped out from twelve feet to thirty-four in roughly the length of a kayak, and because Hal had named everything he ever fished. There was the Bowl, the Living Room, the Idiot Stump, on and on. Drew had been catching bass out of these spots since he was tall enough to see over the gunwale, and he still couldn't bring himself to call any of them by anything other than Hal's names. It would have felt rude.
 He nosed the kayak onto the edge of the drop and started working a chatterbait along it, slow rolled, the way Hal had taught him forty years before fishing YouTube had agreed Hal was right.

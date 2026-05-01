@@ -8,7 +8,7 @@ Mira was at a small round table in the back of the shop, already setting out pla
 The table held a loaf of brown bread, a slab of something pale that Drew thought might be cheese, a small earthenware pot of something the color of paprika that smelled like meat and pepper, two wooden bowls, two horn cups, and a clay pitcher of what turned out to be water with a sliced lemon in it. Banjo, who had relocated from the stove to the table-leg the moment plates appeared, was staring quietly up at the bread, focused like a Buddhist monk in the middle of a koan.
 "Banjo, no," Drew said. He glanced apologetically at Mira. "Sorry. He has zero shame."
 "He's a guest. He gets crusts." Mira broke the heel off the loaf and set it on the floor without ceremony. Banjo accepted the heel reverently, almost religiously, and took it under the table to deal with privately.
-Drew sat. Mira sat across from him. She ladled out the soup, two bowls, and pushed one across to him without asking whether he wanted it, which was a kind of hospitality he had not encountered in his actual life and which he was unprepared for. He picked up his spoon.
+They both sat down at the table. She ladled out the soup, two bowls, and pushed one across to him without asking whether he wanted it, which was a kind of hospitality he had not encountered in his actual life and was unprepared for. He picked up his spoon.
 "What is this," he said.
 "Stew. Beans, smoked fish, whatever was in the pantry. I cheated, it's been on the stove since this morning."
 "You cheated."
@@ -18,7 +18,7 @@ He ate. The stew was good and the bread was very good. The cheese, which she pus
 Mira watched him eat, smiling the small private smile that came over a person whose food was being properly appreciated. She didn't push conversation on him. She just let him eat, which surprised him, and he was already noticing that she kept being surprising in small, easy ways. She had not been programmed to be considerate, so much as she had simply learned, somewhere along her two-and-a-third centuries, how to be in a room with a person who was tired.
 He had a thought.
 The thought was Tracy.
-His cousin Tracy, who had inherited Grandpa Hal's money the same week Drew had inherited the dog and the kayak. Tracy, who was thirty-six now and lived in Madison and whose entire personality from age twenty-two onward had been Switch games on the couch with a glass of wine. He had spent a Thanksgiving once, three or four years ago, watching Tracy play something Japanese with cherry blossoms and a hot bartender, and Tracy had made him sit through her explanation of the affection system. He had not been listening. He had been thinking about football. He remembered, however, the broad strokes of what she had said. *You picked a girl. You did things she liked. You answered her questions. You asked her questions. The questions were the engine. The questions opened the cutscenes. The cutscenes opened the next questions. Drew, you literally play dating sims by being interested in another person, that's the entire mechanic, that's why these games are popular with women.*
+His cousin Tracy, who had inherited Grandpa Hal's money the same week Drew had inherited the dog and the kayak, was thirty-six now, lived in Madison, and had spent her entire personality from age twenty-two onward on Switch games on the couch with a glass of wine. He had spent a Thanksgiving once, three or four years ago, watching Tracy play something Japanese with cherry blossoms and a hot bartender, and Tracy had made him sit through her explanation of the affection system. He had not been listening. He had been thinking about football. He remembered, however, the broad strokes of what she had said. *You picked a girl. You did things she liked. You answered her questions. You asked her questions. The questions were the engine. The questions opened the cutscenes. The cutscenes opened the next questions. Drew, you literally play dating sims by being interested in another person, that's the entire mechanic, that's why these games are popular with women.*
 He had not understood, at the time, why his cousin had said this with such heat.
 He understood now.
 He set down his spoon.
@@ -47,7 +47,7 @@ He thought, briefly, about the too-short trousers. *Mira's dad.* He pushed it on
 "Right. Sorry. Keep going. What were you like as a teenager."
 "Insufferable. I was an insufferable teenager." She said this with such immediate cheer that he almost laughed. "I read a lot of poetry. I was in love with Branwen for about two years and Branwen had no idea, and I cried about it on the dock approximately every other night, and my mom was so patient with me, gods. I wrote things in journals. Bad things. I can't read them now without dying. Hazel can read them, I let Hazel read them sometimes when she's bored, and she just cackles."
 "Branwen the catgirl Branwen."
-"Branwen the catgirl Branwen. She was my first crush. She was everybody's first crush, you'll see. It's a phase the village goes through with her in shifts."
+"Branwen the catgirl Branwen. She was my first crush, and everybody's first crush, you'll see. It's a phase the village goes through with her in shifts."
 "Okay." He was smiling, he realized. It had snuck up on him. "Birthday."
 "Spring twenty-fourth."
 "Spring."
@@ -191,9 +191,7 @@ Not the creek, the fish. They were everywhere, in soft glowing blue outlines tha
 He laughed. It came out of him before he saw it coming, the first time he'd done it since the moment on the kayak before the lightning. It wasn't quite a full laugh, just one short bark of a laugh that turned into a longer rolling one and settled into something quieter.
 "Mira," he said.
 "Yeah?" Her voice was right at his shoulder.
-"This is — this is incredible."
-"Yeah."
-"This is so much fun."
+"This is — this is incredible." He shook his head at the lit-up creek. "This is so much fun."
 "I know."
 "Holy shit, Mira."
 She put her hand briefly between his shoulder blades and took it away again.

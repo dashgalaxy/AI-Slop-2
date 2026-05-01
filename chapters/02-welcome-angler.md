@@ -28,7 +28,7 @@ She took two steps closer, then a third, and stopped about five feet away with h
 "You are seeing my face," Drew said.
 "I mean closer."
 "I — sure?"
-She closed the distance, reached up on her toes, and peered into his face from about six inches away, intently and scholarly serious in a way that should have felt invasive and somehow did not. She smelled like something herbal he didn't recognize. He held very still, partly because he had no idea what the etiquette was, and partly because he was thirty-one years old and had not been looked at this hard by a woman in longer than he could remember.
+She closed the distance, reached up on her toes, and peered into his face from about six inches away, intently and scholarly serious about it, which should have felt invasive and somehow did not. She smelled like something herbal he didn't recognize. He held very still, partly because he had no idea what the etiquette was, and partly because he was thirty-one years old and had not been looked at this hard by a woman in longer than he could remember.
 "Round pupils," she reported, apparently to herself.
 "Yep," Drew said.
 "No second eyelid."
@@ -112,7 +112,7 @@ The gold-eyed girl let go of his hands. The catgirl with the gray hair turned he
 Drew opened his mouth to ask what he had said, and a voice he had not heard yet cut clean through the lane like a knife through soft butter.
 "That's enough."
 The crowd parted.
-She came down the lane unhurriedly, her white hair pulled back into a long simple braid that hung over one shoulder. Her skin was paler than Mira's, almost luminous against the dark green of the dress she was wearing, which was cut to suggest she had nothing to apologize for and also nothing to prove. On a younger woman it would have been a flirtation, and on her it was just the dress she had decided to wear today. Her ears tapered to a long point like Mira's, and her eyes were the same wine-red, only with a longer history in them. Her face was not quite forty-something the way Drew's mother had been forty-something. It was forty-something the way a portrait could be, if the painter had been trying to convey that the woman in the portrait had seen a great deal and forgiven most of it.
+She came down the lane unhurriedly, white hair pulled back into a long simple braid that hung over one shoulder, skin paler than Mira's, almost luminous against the dark green of the dress she was wearing. The dress was cut to suggest she had nothing to apologize for and also nothing to prove, and on a younger woman it would have been a flirtation, while on her it was just what she had decided to wear today. Her ears tapered to a long point like Mira's, her eyes were the same wine-red but carried a longer history, and her face was not quite forty-something the way Drew's mother had been forty-something. It was forty-something the way a portrait could be, if the painter had been trying to convey that the woman in the portrait had seen a great deal and forgiven most of it.
 Drew, whose brain had been overwhelmed roughly nine times in the past hour and had given up trying to triage what was relevant, dimly and neutrally observed that she was an absolute knockout.
 "He's overwhelmed," she said, looking past Drew at the crowd. "All of you, breathe." Her gaze tracked through the gathering, landing on each of them in turn. "Mira, dear, you've done a beautiful job. Branwen, my love, please. Hazel, you can let go of his shirt now."
 Hazel, who had not previously been holding his shirt, let go of his shirt.
@@ -166,9 +166,7 @@ He thought *skills*.
 The panel chimed. The class readout dissolved and reformed into a list, six entries, each with a small icon and a one-line description.
 ANGLER — TIER I SKILLS (Choose 1)
 Cast Accuracy I — Improves rod handling and casting precision at short to medium range. Line Sense I — Faint sensory awareness of fish within casting distance. Lure Craft I — Allows the assembly of basic lures and spinners from foraged materials. Patience (Passive) — Stamina regenerates slowly while still and observing water. Bait Identification I — Recognize the qualities of natural baits and their suitability for local fish. Summon Pet (Animal Companion) — Pull a previously bonded animal companion across the threshold to join you in this world.
-Drew read the list once.
-He read it again.
-He looked at the sixth entry for a long time.
+Drew read the list twice through, and then looked at the sixth entry for a long time.
 "Lyselle." His voice had gone careful. "This last one. Summon Pet."
 "Yes," she said.
 He could not, for a second, get the next sentence to come out. He looked at the icon. He looked at her.
@@ -215,7 +213,7 @@ Banjo, who had decided that the woman in the cut-off overalls was friendly and a
 "Go."
 Mira went. Drew went after her, with the dog welded to his calf, and Lyselle closed the green door behind them, and the bolt went home again with the same heavy, definite sound it had made before.
 Out on the lane the village had gone back to a more normal kind of busy. Women were doing the things they had presumably been doing before he arrived, although a fair number of them were doing those things in line-of-sight of the path between Lyselle's house and the bait and tackle shop, which Drew chose to find flattering rather than concerning.
-He walked. Mira walked beside him. The dog walked between them, occasionally bumping Drew's knee as if to confirm Drew was still there.
+They walked, Mira beside him and the dog padding between them, occasionally bumping Drew's knee as if to confirm Drew was still there.
 "So," Mira said, after a minute.
 "So," Drew said.
 "You found me."
