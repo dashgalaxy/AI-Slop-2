@@ -64,7 +64,7 @@ Drew rubbed his jaw. "The system requires me to own property to marry."
 "The system is, structurally, a 1950s mortgage broker."
 "I don't know what that is," Mira said, fighting a small twitch at the corner of her mouth, "but I have a feeling that face is one a lot of protagonists make, in other villages, when their elders explain it to them."
 "*Why?*"
-She set down her cup and pinched the bridge of her nose for a half-second, in the way of a woman who had just been asked to defend a thing she did not personally write.
+She set down her cup and pinched the bridge of her nose for a half-second, looking briefly like someone asked to defend a thing she had not personally written.
 "Because of the system, Drew, I don't know why, I keep telling you, I don't know who wrote it." Her hand dropped. "The other thing is that the village just — *feels* better, when the protagonist has his own place. That's what the older travelers say, anyway. They've been to villages where it's already happened. They say the village settles, the day after a protagonist's house gets finished. People relax. It's a confirmation. He's staying. I've never felt it myself, but I want to. Build a house. People will be glad. I'll be glad."
 "Branwen the carpenter," Drew said.
 "Branwen the carpenter. Branwen, who works wood, lives on the south end of the lane, two doors past the bathhouse, blue door with a crossed-axe sign. You'll like her. Everyone likes her. Be careful — she's also a flirt."
@@ -178,7 +178,7 @@ It was a beautiful axe, double-bitted, the head a dark steel with a single small
 "Don't thank me yet. Come back with logs."
 He came back, several hours later, with logs.
 The woods north of the village were, he discovered, very pleasant to cut trees in.
-The trees were cooperative. They were the wrong-different green he had noticed yesterday on the path, but their wood was real wood, and his axe bit into them the way an axe was supposed to bite, and they came down in directions he aimed them in. Banjo, who had elected himself foreman, sat at a safe distance on a flat rock and supervised unflappably, confident in the way only a dog could be confident about which person on this team was running the operation.
+The trees were cooperative. They were the wrong-different green he had noticed yesterday on the path, but their wood was real wood, and his axe bit into them properly, and they came down in directions he aimed them in. Banjo, who had elected himself foreman, sat at a safe distance on a flat rock and supervised unflappably, confident in the dog-specific way that this team had a clear leader and was not him.
 Drew worked.
 He had not done sustained physical labor since the divorce had eaten his gym habit, and he had forgotten how good it felt. The first tree was hard, the second harder, the third easier. He felled the third one cleanly, with a precise notch and a clean back-cut, and Banjo applauded, which was the only word for it. The dog woofed at him once, sharply, and wagged his tail in big slow arcs, and Drew, hot and breathing hard with sap on his hands, laughed out loud at him.
 He stripped the branches and cut the trunks into rough logs. He had eight of them on the ground, lined up, sap-fragrant, when he realized he did not know how he was going to carry them back to the village.
@@ -261,14 +261,14 @@ He stared at her for a beat. "That's — Mira, that's all you've got to say abou
 She tilted her head the other way. The portrait tilted with her.
 "What else would I have to say about it?"
 "I don't know. *Something.*"
-"You bonked into a limit. The system made me yelp. You brought flowers." She shrugged easily, in the specifically small way of a person who had genuinely already moved on. "Three good ones. Numbers came back up. Curriculum, Drew. We talked about this."
+"You bonked into a limit. The system made me yelp. You brought flowers." She gave a small easy shrug, genuinely already moved on. "Three good ones. Numbers came back up. Curriculum, Drew. We talked about this."
 "Yeah, but —"
 "But what?" She wasn't being defensive. It was a real question.
 He didn't have a good answer to that, because he was not entirely sure what the *but* was. The *but* was somewhere in his chest, and he did not enjoy noticing it there, because the *but* was a thing from his old life, where you did not grab a woman who had not invited you to grab her, and where, if you did, she was upset for considerably longer than four seconds and considerably more than seven points worth, and where she did not then bury her nose in the apology bouquet and ask you what *else* the two of you were doing today.
 The *but* was not, on inspection, a thing Mira had any obligation to. It was a thing he had brought with him, in his luggage, from the country he no longer lived in.
 He tried again anyway.
 "You're not — you're really not bothered."
-"I was bothered. I yelped. You fixed it." She frowned, briefly, the way a person frowns when she is being asked, for the third time, the same question she has answered. "Drew, am I supposed to be more bothered?"
+"I was bothered. I yelped. You fixed it." She frowned briefly, the way someone frowns when asked the same question they've already answered three times. "Drew, am I supposed to be more bothered?"
 "I — I don't know."
 "Because if I'm supposed to be more bothered, I'll try." She said it the way you'd offer to take off your shoes if a host asked. "But the system says we're square, and I don't really feel like I'm not square, so I think we're square. Are we square?"
 He looked at her for a beat. "We're square."
@@ -292,7 +292,7 @@ She blinked at him.
 "I don't know what that means."
 "I'm asking whether you're, uh. Whether you have. Genitals. Nipples. The same equipment."
 Her face went pink.
-It went pink quickly, in two soft patches across her cheekbones, and her ears went pink at the tips, and the portrait at the corner of his vision went a corresponding color across the cheeks of her cartoon face. Drew watched it happen closely, the way a man watches a thing he has not yet seen and is going to be thinking about for a while. The blush was, in his quiet professional opinion as a man, an enormously effective blush. He suspected the system had been a long time in building it.
+It went pink quickly, in two soft patches across her cheekbones, and her ears went pink at the tips, and the portrait at the corner of his vision went a corresponding color across the cheeks of her cartoon face. Drew watched it happen closely, intent on something he hadn't yet seen and was going to be thinking about for a while. The blush was, in his quiet professional opinion as a man, an enormously effective blush. He suspected the system had been a long time in building it.
 "*Hey,*" she said. Quietly. Not the *hey* of yesterday. A different *hey*.
 The number on the panel dropped from 50 to 44. The Mood flickered amber, *Embarrassed*, and settled.
 Drew did not stand up. He had a bouquet on his lap.

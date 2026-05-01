@@ -180,7 +180,7 @@ She was no longer holding her teacup. He could not, in retrospect, place when sh
 She held his gaze. The portrait at the corner of his vision was watching him, with its drawn-on white braid hanging exactly the same way the actual braid hung, and the expression on its drawn face was the expression on her actual face, and Drew, who had been having a very strange morning and was now having a stranger one, could not, on examination, find a meaningful seam between them.
 "Okay," he said. "Okay. That's fair."
 She stood, and smoothed the dark green of her dress, and walked him toward the door.
-"Go fish for a while, Drew," Lyselle said, holding the door for him. "You need to fish. Your face has gone the color of a man who has eaten more cosmology than his stomach was prepared to handle, and the cure is fish. Bring me a perch back, if you catch one, and I will pickle it for you and you can eat it in fifteen years and tell me whether it was worth waiting."
+"Go fish for a while, Drew," Lyselle said, holding the door for him. "You need to fish. You have gone slightly green, the color a man goes after eating more cosmology than his stomach was prepared to handle, and the cure is fish. Bring me a perch back, if you catch one, and I will pickle it for you and you can eat it in fifteen years and tell me whether it was worth waiting."
 "I'll try," Drew said.
 "And Drew." She caught his sleeve as he passed.
 "Yeah?"
@@ -248,7 +248,7 @@ She propped herself up on her elbow, eyes wide and small with the dawning unders
 He grinned at her in the dark.
 He opened his inventory.
 He thought *Bouquet (Wildflower) ×26* at the slot, and the slot dissolved its contents onto the foot of the bed in a long, slow, comically extended cascade of motes-of-light-becoming-flowers, twenty-six bouquets one after another after another, until the foot of Mira's bed was a small soft purple-and-yellow-and-white mountain range of wildflowers piled waist-high against the carved wooden footboard. A single white star-shaped flower slid down the heap and disappeared off the edge of the bed in a way that the bed, on principle, did not have any business being able to accept, and which Drew was choosing, given the circumstances, not to think too hard about.
-Mira sat in the middle of it, her sleep-shirt open, her hands clapped over her mouth, looking from the flower-mountain to Drew to the flower-mountain to Drew, with her wide red eyes huge and her cheeks the soft pink of a woman who had just been, in the most ridiculous possible terms, courted.
+Mira sat in the middle of it, her sleep-shirt open, her hands clapped over her mouth, looking from the flower-mountain to Drew to the flower-mountain to Drew, her wide red eyes huge and her cheeks gone the soft pink she went when she had just been, in the most ridiculous possible terms, courted.
 The number ticked from 60 to 71. To 78. The MOOD flicker died away from amber back to a soft green, *Pleased,* and then darkened toward something Drew did not have a name for, and the AROUSAL line, which had been parked, started climbing in slow steady increments while neither of them moved.
 "Drew Halloran," Mira said, behind her hands. "You *prepared* for this."
 "I prepared for this," he said.
@@ -277,7 +277,7 @@ That was, he noted, the entire sentence she had available to her on the topic.
 "Yeah," Drew said.
 He watched her watch his cock with the wide red eyes she had used for inspecting his face on the first day, and he could see, on her face, the shape of the longer thing she might have been about to say if her panel had let her, probably something dry and clinical and Mira-shaped to do with him being a generous quantity of man, and the panel at the corner of his vision did not let her. The thing stayed unsaid. The portrait, which was watching him over Mira's drawn-on shoulder, had its tiny inked hand over its tiny inked mouth and was, somehow, also reading the situation.
 The number was at 91 and climbing. AROUSAL: *Aroused — 71*. The panel was, in the very dim background, chiming softly to itself in a way it had not chimed before, like a kettle that had decided it was on.
-He reached down and pulled the sleep-shirt the rest of the way off her arms. He tossed it on the floor with his own clothes. Mira, naked, was small and pale and pink in patches, with a neat dark patch of hair between her thighs that was, Drew noted with the low-grade surprise of a man who had been told not to expect surprises, the same black as the hair on her head. Her thighs were closed. Her hands had clasped themselves, briefly, over her stomach.
+He reached down and pulled the sleep-shirt the rest of the way off her arms, then tossed it on the floor with his own clothes. Mira, naked, was small and pale and pink in patches, with a neat dark patch of hair between her thighs that was, Drew noted in low-grade surprise, the same black as the hair on her head. Her thighs were closed and her hands had clasped themselves, briefly, over her stomach.
 "Mira," he said, low.
 "*Hey,*" she said, and the *Hey* had become, in the last ninety seconds, a multi-purpose word.
 "Open your legs for me."
@@ -287,7 +287,7 @@ He moved between her thighs and ran two fingers through the slit of her pussy. S
 His fingers found her clit. Mira's hips bucked up off the mattress all on their own.
 "*Drew* — "
 "Yeah," he said, watching her.
-She was making small noises now, in a steady rising rhythm, while he worked his fingers around her clit in slow circles. Her face came apart in increments, the way a face does when a body is overruling whatever line the system had been giving it. Mira, two centuries and change of waiting on a dock for somebody who wasn't a goat, had gone the soft pink of a woman who had not been touched like this in a longer time than Drew was prepared to do the math on. Her legs had fallen further open. Her hands were fisted in the sheet. The system, satisfied with itself, kept logging.
+She was making small noises now, in a steady rising rhythm, while he worked his fingers around her clit in slow circles. Her face came apart in increments, the way a face does when a body is overruling whatever line the system had been giving it. Mira, two centuries and change of waiting on a dock for somebody who wasn't a goat, had gone soft pink across her face and chest, telling him she had not been touched like this in a longer time than Drew was prepared to do the math on. Her legs had fallen further open and her hands were fisted in the sheet. The system, satisfied with itself, kept logging.
 AFFECTION 94 → 96. AROUSAL: *Aroused — 89.*
 "Drew — Drew — "
 It was the only word she had. She was using it the way someone with a vocabulary of one word uses that word: as a request, a complaint, a question, an apology, all on the same syllable. He watched her use it to ask for a thing she could not name. He watched the panel watch her use it.
@@ -298,7 +298,7 @@ He lined up the head of his cock with her cunt and watched her face, and when sh
 It was, on the entry, a little bit of work. She was very wet but she was also very small, and his cock was, as Mira had not been able to say out loud, not a small cock. He went in slow. Mira made a noise that started as *Hey* and turned, halfway through, into a different sound entirely, a soft shocked one that was not in any of the dictionaries the system had yet issued her. He bottomed out after a long careful second and held there, watching her, while her body adjusted around him.
 The panel went briefly still and then started ticking again.
 AFFECTION 96 → 98. AROUSAL: *Aroused — 95.*
-A new line wrote itself underneath. Drew read it, in passing, with the part of his brain that read panels.
+A new line wrote itself underneath. Drew read it in passing, panel-reading-brain doing the work.
 AVAILABLE REQUESTS — [UNLOCKED] Request: Cum Inside Me Request: Pull Out
 He registered it without taking a position for tonight, on the grounds that he had not been a father in his previous country for any number of days and was not prepared to find out whether the system was generous with starter children.
 He started moving.

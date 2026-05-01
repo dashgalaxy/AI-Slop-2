@@ -129,7 +129,7 @@ He picked one. It was a six-foot light-action with a cork grip that fit his hand
 "Free," Mira said, before he could reach for his pockets that no longer had anything in them. "First rod's a gift from the shop. House rules. Don't argue."
 "I wasn't going to argue."
 "Good. Bait."
-She tossed him a small jar. The jar contained, under a layer of sawdust, a clutch of fat, glossy worms that did not look exactly like Wisconsin earthworms but were close enough that his hands knew what to do with them. He baited up. She baited up beside him with a smaller rod of her own, sitting cross-legged on the dock with her boots at the edge and her toes hanging off the way no responsible Wisconsin person would let a kid sit, for fear of snapping turtles. There were probably no snapping turtles here. He decided not to say it.
+She tossed him a small jar. The jar contained, under a layer of sawdust, a clutch of fat, glossy worms that did not look exactly like Wisconsin earthworms but were close enough that his hands knew what to do with them. He baited up, and so did she, with a smaller rod of her own, sitting cross-legged on the dock with her boots at the edge and her toes hanging off the way no responsible Wisconsin person would let a kid sit, for fear of snapping turtles. There were probably no snapping turtles here, but he decided not to say it.
 They cast.
 His chatter line drifted out over the green water and the bobber settled, and in his peripheral vision the affection ticker on Mira's panel ticked from 16 to 17. Then, about a minute later, to 18. Then to 19. He frowned at it.
 "Is this — am I doing something?"
@@ -147,7 +147,7 @@ She pulled her knees up to her chest and watched the bobber on his line drift si
 "Mhm."
 They both sat, and Banjo settled in beside Drew on the dock, body pressed against Drew's hip, watching the bobber with the same focused attention he would have given the smallmouth on the kayak. The water under them was clear and dark, the surface dotted with the slow, occasional rings of small fish rising. The afternoon was warm but not hot. The air smelled of distant woodsmoke from the village, and closer in, the cheese she had made, and underneath all of it, Mira herself, herbal and clean. The number on the panel went from 19 to 20.
 He had a fish on his line in about six minutes.
-It hit his bobber the way a normal fish hit a normal bobber. He set the hook automatically, three decades of muscle memory doing the work for him, the rod bent, and the fish ran. Mira yelped. Banjo levitated. The fish made one long run downstream, then turned and came back. Drew gained line on the return, and inside of two minutes he had it sliding up onto the dock.
+It hit his bobber like a normal fish hitting a normal bobber. He set the hook automatically, three decades of muscle memory doing the work for him, the rod bent, and the fish ran. Mira yelped. Banjo levitated. The fish made one long run downstream, then turned and came back. Drew gained line on the return, and inside of two minutes he had it sliding up onto the dock.
 It was a fish.
 It was not, in the strictest scientific sense, a fish he recognized. It was about ten inches long, with the general blueprint of a sunfish, but its scales were a soft iridescent purple that shaded toward green at the gills, its dorsal spines were tipped in pale gold, and when it flopped on the dock it made a small, surprisingly musical chirping noise.
 "It chirps," Drew said.

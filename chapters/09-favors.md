@@ -1,6 +1,6 @@
 # Chapter 9: Favors
 
-He had walked the lane back from Lyselle’s slow. He had a thing in his chest he was not allowed, this afternoon, to set on the table. He had come home anyway.
+He had walked the lane back from Lyselle’s slow, carrying a thing in his chest he wasn’t allowed, this afternoon, to set on the table. He had come home anyway.
 Drew stepped through the front door of Holloway’s Bait & Tackle with Banjo trotting at his ankle. The shop smelled like pine resin, old wax, and the faint ghost of Mira’s cheese from breakfast. The lamp on the counter burned low, just enough to push back the shadows gathering under the rafters. Upstairs, floorboards creaked once, slow and lazy, the way somebody stretching in bed creaked them, and then again, closer to the stairs.
 He smiled to himself. *She’s awake.*
 Banjo padded straight to his nest of blankets behind the counter, circled three times, and flopped down with a contented grunt, clearly deciding his shift was over. Drew hung his rod on the rack by the door, wiped his hands on his pants, and was halfway to the back room when Mira’s voice drifted down the stairwell.

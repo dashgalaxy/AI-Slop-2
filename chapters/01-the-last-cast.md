@@ -4,7 +4,7 @@ Banjo had been staring at the rebuilt reel for forty minutes when Kelsey finally
 "Are you working," she said, "or are you fondling fishing equipment on the clock?"
 "Both." Drew didn't look up.
 "Brett does that." She pushed the door the rest of the way open with her hip and came in. "It's why we have a sun room full of crankbaits and no spare bedroom."
-"My condolences to the spare bedroom," Drew said, easing a drag washer back into the stack with the tip of a flathead.
+"My condolences to the spare bedroom," Drew said, easing a drag washer back into the stack with a flathead screwdriver tip.
 Drew thumbed the next washer into place and didn't look up. He'd taken the Shimano apart on his lunch break and gotten distracted by a hairline crack in the bail spring, which had led to ordering a replacement bail spring on his phone, which had led to comparing two bail springs on a forum, which had led to reading a very strongly worded review of a third bail spring, and now it was four-fifteen on a Friday and he had a half-finished quote open in another tab. He pulled the quote forward and started typing again.
 Kelsey came the rest of the way in and hopped onto the corner of his desk anyway. She'd been doing that since her second week at the company, back when Drew had still bothered to look annoyed about it. Four years on, the desk had a Kelsey-sized buff polished into the laminate.
 "You got a minute?" she said.
@@ -46,7 +46,7 @@ He glanced up. She had tilted her head at him the same way she always did right 
 "My mother loves you," Drew said, going back to the quote.
 "Your mother thinks I'm a meddler."
 "My mother's correct."
-Kelsey slid off the desk and tugged her coat straight. At the door she paused, the way she always did, and aimed a finger at him without turning around.
+Kelsey slid off the desk and tugged her coat straight. At the door she paused and aimed a finger at him without turning around.
 "Hannah. Coffee. One coffee. Sometime in the next decade."
 "Noted," Drew said.
 "Drew, I mean it." She turned her head just enough to put one eye on him over her shoulder.
@@ -67,7 +67,7 @@ Grandpa Hal had called the deep hole half a mile out the Bowl, because the botto
 He nosed the kayak onto the edge of the drop and started working a chatterbait along it, slow rolled, the way Hal had taught him forty years before fishing YouTube had agreed Hal was right.
 On the fourth cast a smallmouth thumped the bait hard enough to bury the rod tip.
 "Oh, hello," Drew said, half-laughing, and set the hook.
-Banjo levitated to attention. Drew leaned the rod into the run and let the fish make its first lunge before he started gaining line back. Two pounds, maybe a hair over, and smallmouth on a chatterbait was exactly the kind of bite that cured a bad week, a bad month, and roughly forty percent of a divorce.
+Banjo levitated to attention. Drew leaned the rod into the run and let the fish make its first lunge before he started gaining line back. He could feel the size of it through the rod, two pounds maybe, a hair over, and smallmouth on a chatterbait was exactly the kind of bite that cured a bad week, a bad month, and roughly forty percent of a divorce.
 He brought the fish to the side, lipped it, popped the bait free clean, and held it over the kayak for Banjo's inspection. This was the part of the ritual the dog had a strong opinion about. Banjo leaned out, sniffed the smallmouth gravely, like a customs official inspecting a suspicious orange, and gave Drew a single look that meant *acceptable*.
 "Glad you approve," Drew said, lowering the bass to the water. "Off you go, pal."
 He let the bass slide. It hung suspended for a half-second, the way they sometimes did, and then was gone into the green. Drew rebaited while Banjo lay back down, and the kayak rocked gently on the drift.

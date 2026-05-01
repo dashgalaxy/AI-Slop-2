@@ -7,7 +7,7 @@ He looked at her.
 He could see the dream still, every piece of it sitting on the inside of his eyelids like an afterimage, with a clarity that the previous mornings' dreams had not had. He was sweating through his shirt, his hair was wet at the temples, his hands were shaking, and the dream was there, in his head, intact, sitting in the seat the previous dreams had been edited out of.
 "Drew, breathe," Mira said, her voice low and steady. "Breathe."
 He breathed.
-He breathed for a minute. Mira, who had been a half-elf shopkeeper asleep beside him thirty seconds ago, was now a half-elf woman with her hand pressed against his sternum and her wide red eyes locked on his face, working him through it the way a person works a horse through a spook. The portrait at the corner of his vision had its hands clasped at its little drawn chest, serious as an actual cartoon mother.
+He breathed for a minute. Mira, who had been a half-elf shopkeeper asleep beside him thirty seconds ago, was now a half-elf woman with her hand pressed against his sternum and her wide red eyes locked on his face, walking him through it like she was walking a horse through a spook. The portrait at the corner of his vision had its hands clasped at its little drawn chest, serious as an actual cartoon mother.
 "You're here," she said. "You're with me. Breathe."
 "I'm here," Drew managed. "I'm — yeah. I'm okay. Hi. I'm okay."
 "You scared me."
@@ -71,7 +71,7 @@ He looked at her over the low table. The teacup between them was sending up a th
 "Lyselle," he said, "you are scaring me on purpose."
 "I am, and I am sorry, and I am doing it because the alternative is that you will think I am not taking it seriously." She folded her hands on the table. "I am taking it seriously. I have heard versions of this dream from elders' protagonists in two of the other ten villages, in two hundred years of correspondence. Versions, I will note. None has been identical to it, none has had a named child, and none has involved a figure that refused to look at the protagonist. The named child is new. The not-looking is, I think, very specifically new. Do you understand what I am saying?"
 "I think — yeah. Yeah, I think so."
-She watched his face. The portrait at the corner of his vision had gone still in its drawn-on chair, attentive in the way a clerk goes attentive when the file in front of her starts moving on its own.
+She watched his face. The portrait at the corner of his vision had gone still in its drawn-on chair, attentive the way clerks go attentive when the files in front of them start moving on their own.
 "Tell me what you think I am saying," she said.
 "That somebody is — somebody who isn't the system, but who is something like the system." Drew rubbed his jaw. "Has decided I'm a problem they're not going to engage with directly yet. And the dream is — the dream is the *yet.*"
 "That is a generous reading of what I am saying," Lyselle said. "Yes."
