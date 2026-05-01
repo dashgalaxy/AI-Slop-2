@@ -8,7 +8,7 @@ Banjo, having sniffed the rocking chair cushion and apparently approved of it, w
 "Banjo, off," Drew said.
 Banjo dropped his butt onto the porch boards with a thud and looked up at Drew, deeply affronted, told no for the first time in three days and visibly injured by the experience.
 Mira unlocked the door and bumped it open with her hip.
-The inside of the shop smelled like wax and pine resin and, faintly, fish. The front room was narrow and tall, with a counter running the length of one wall and a forest of fishing rods racked vertically behind it. Lures hung from the rafters on lengths of twine, swaying in tiny currents Drew couldn't feel. There were jars on the shelves containing things he could not immediately classify, some of which appeared to be looking back at him. A potbelly stove sat unlit in the back corner with a kettle on top, and a doorway behind the counter led, presumably, to a back room and a stairs.
+The inside of the shop smelled like wax and pine resin and, faintly, fish. The front room was narrow and tall, with a counter running the length of one wall and a forest of fishing rods racked vertically behind it. Lures hung from the rafters on lengths of twine, swaying in tiny currents Drew couldn't feel. There were jars on the shelves containing things he could not immediately classify, some of which appeared to be looking back at him. A potbelly stove sat unlit in the back corner with a kettle on top, and a doorway behind the counter led to a back room and a stairs.
 "Sit," Mira said, gesturing at a low stool by the counter as she swept past him. "I'll put water on. Are you hungry? You look hungry. You must be starving. Are you cold? Of course you're cold." She crouched by the stove and reached for a metal bowl. "Banjo, sweetheart, there's a bowl by the stove I'll fill it, hold on."
 She bustled. There was no other word for it. Drew sat on the stool and let her bustle, partly because she clearly enjoyed it and partly because he had reached a level of cognitive saturation that did not currently support helpful behavior. Banjo accepted his water bowl regally, like a king receiving tribute, and lay down beside the stove.
 Mira put two mugs of something warm in his hand without explaining either of them. She perched on the counter across from him, swinging her legs, and looked at him with those wide red eyes again.
@@ -87,7 +87,7 @@ She crossed her arms. "It's physics, it's not weird."
 "You'll get used to it."
 "I might not."
 She grinned. "You will, but I admire your conviction."
-She was beaming again. The portrait at the corner of his vision was doing some kind of small dance now, possibly a curtsey. He chose not to look directly at it. The kettle on the stove was starting to whistle. Banjo, who had been mostly asleep, raised his head, considered the situation, and concluded the situation did not require his intervention.
+She was beaming again. The portrait at the corner of his vision was doing a small dance now, possibly a curtsey. He chose not to look directly at it. The kettle on the stove was starting to whistle. Banjo, who had been mostly asleep, raised his head, considered the situation, and concluded the situation did not require his intervention.
 "Mira, you said you're twenty-two."
 "Yeah."
 "How long have you been twenty-two?"

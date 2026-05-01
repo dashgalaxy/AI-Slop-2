@@ -14,7 +14,7 @@ Mira came down the stairs at first light with her hair flattened on one side and
 "I thought you'd have gone fishing already."
 "It's early."
 "It's late, for an Angler." She gave him a small unimpressed look, the kind of look she clearly reserved for men still in floor-quilts at dawn while mocking her routine, and came the rest of the way down.
-She padded across the floor in her bare feet and dropped into a crouch beside his nest, peering down at him. The portrait at the corner of his vision, which had been off for the night somehow, chimed quietly back online and yawned theatrically before settling into its usual cheerful watchfulness.
+She padded across the floor in her bare feet and dropped into a crouch beside his nest, peering down at him. The portrait at the corner of his vision, which had been off for the night, chimed quietly back online and yawned theatrically before settling into its usual cheerful watchfulness.
 "Bad sleep?" she asked, tilting her head.
 "Weird sleep."
 "Dream?"
@@ -119,7 +119,7 @@ MOOD — [LOCKED] OPINION — [LOCKED] AROUSAL — [LOCKED] AVAILABLE REQUESTS �
 "I — sure. Sure, tea."
 "Tea, dog?" she added, glancing down.
 Banjo, having wandered in behind him, looked up at Branwen with his diplomatic face. The cat on the daybed opened one eye, assessed Banjo, closed it again, and was unbothered. A working professional acknowledging another working professional.
-Branwen poured him tea, then herself, and kept moving while she did it, a little prowl-walk back and forth between hot plate and bench that seemed to be her body's idle state. She did not sit down, but gestured for him to.
+Branwen poured him tea, then herself, and kept moving while she did it, a little prowl-walk back and forth between hot plate and bench that was her body's idle state. She did not sit down, but gestured for him to.
 "So," she said, leaning a hip against the bench. "House."
 "House," Drew echoed.
 "Mira said you'd want one."
@@ -201,8 +201,8 @@ He thought, instead, about the back dock.
 He thought about Mira, specifically: her short black hair and the strip of ribbon she had pulled it back with this morning, her cut-off overalls, her face going pink yesterday when his butt-slap experiment had startled her. He thought about her affection number, which sat at 42, and which he had not yet finished raising. He pictured the *Tier: Friend* under it, and the readouts under that. Opinion sat amber at *Handsome Savior*, Mood soft green at *Pleased*, with both Arousal and Available Requests still blacked-out, all of them waiting for him to do enough of the right things to unlock them.
 He had been told, in plain language, by every woman he had spoken to in the last twenty-four hours, that he was the village's protagonist. He had been told, also in plain language, that the system was a panel, the panel was the rules, and the rules were forgiving, because the make-up loop was, by Mira's own words, kind of the point. He had been handed, in summary, a video game and a gauge.
 He was, he was willing to admit to himself, kind of stoked about it. He was thirty-one, recently divorced, and had spent eleven months waking up alone in an apartment with a country station he had not bothered to change, and he had been told he was now in a place where the women were NPCs running on a system that rewarded him for paying attention and forgave him for poking at the limits.
-He noticed, while he walked, that the small voice in his head that would have flagged this on Earth was not flagging it now. The voice hadn't gone silent. It had read the rules, looked at the gauge, watched Mira coach him through the use of both, and decided to wait this out. He was, he was beginning to suspect, the kind of man who, given a forgiving sandbox, was going to find out what it actually forgave. He wasn't certain he liked that about himself, but he was certain he was going to do it anyway.
-He was also aware, at the back of his head, that he was thinking about Mira right now in a different register than the one he had thought about her in over the cheese yesterday, or the one he had thought about her in when she said *yes* against his shoulder on the dock. The cheese-Mira and the yes-Mira had felt like a person. The Mira he was walking back to right now felt, for the duration of this walk, more like a panel. He noticed this, and didn't especially mind it. He intended to find out what the chart actually permitted, which was not a thing he could do by sitting on her dock catching chubchirps and being polite.
+He noticed, while he walked, that the small voice in his head that would have flagged this on Earth was not flagging it now. The voice hadn't gone silent. It had read the rules, looked at the gauge, watched Mira coach him through the use of both, and decided to wait this out. He was, he was beginning to suspect, the kind of man who, given a forgiving sandbox, was going to find out what it forgave. He wasn't certain he liked that about himself, but he was certain he was going to do it anyway.
+He was also aware, at the back of his head, that he was thinking about Mira right now in a different register than the one he had thought about her in over the cheese yesterday, or the one he had thought about her in when she said *yes* against his shoulder on the dock. The cheese-Mira and the yes-Mira had felt like a person. The Mira he was walking back to right now felt, for the duration of this walk, more like a panel. He noticed this, and didn't especially mind it. He intended to find out what the chart permitted, which was not a thing he could do by sitting on her dock catching chubchirps and being polite.
 He started walking faster.
 Mira was on the back deck when he came around the side of the building.
 She had a small basket of laundry in her arms and was hanging shirts on a line strung between the deck rail and a cedar post, and she had her short black hair tied back with a strip of ribbon, and she was humming. She turned when she saw Drew, the wet shirt in her hands forgotten, and her face did the bright-immediate thing it had done yesterday on the path.
@@ -319,9 +319,9 @@ Drew pulled the hand back and lifted both of them in a not-sorry surrender. "Ref
 "That one's not for today," she said, mouth fighting a small twitch.
 "Got it."
 He patted her on the head, which was for-today, apparently. The number ticked from 44 to 45.
-The portrait at the corner of his vision rolled her eyes at him fondly, and the actual Mira beside him did the same. Drew had spent the better part of his morning earning and spending affection in approximately equal measure, and he found that he was grinning.
+The portrait at the corner of his vision rolled her eyes at him fondly, and the actual Mira beside him did the same. Drew had spent the better part of his morning earning and spending affection in equal measure, and he found that he was grinning.
 "Go give Branwen her logs," Mira said, straightening up off the rail and giving him a small shove toward the deck stairs. "You owe her logs. Come home for dinner. Please."
 "I will," he said.
 "Mhm." She didn't sound convinced, but she was smiling.
-He kissed her on the top of her head on his way out, briefly, because she was leaning on the rail with the bouquet beside her elbow and it seemed like the move. The number ticked from 45 to 48. The portrait at the corner of his vision blushed all the way down to her collarbone, and so did the actual Mira. Drew had a pile of logs in his inventory and a long afternoon ahead of him. He picked up his axe and went.
+He kissed her on the top of her head on his way out, briefly, because she was leaning on the rail with the bouquet beside her elbow and it was the move. The number ticked from 45 to 48. The portrait at the corner of his vision blushed all the way down to her collarbone, and so did the actual Mira. Drew had a pile of logs in his inventory and a long afternoon ahead of him. He picked up his axe and went.
 Banjo went with him. The portrait stayed.

@@ -4,7 +4,7 @@ He woke up sweating again.
 He lay on his back in the nest of quilts and listened to his own pulse for a while. Banjo was once again load-bearing in the architecture of the floor, and he was unbothered. Drew tried to remember the dream. There had been something about water, maybe, a voice he almost recognized, someone calling his name from the other side of a door he could not find. He couldn't remember any more than that, couldn't even remember enough of it to know what was supposed to be missing. By the time the early light started turning the rafters from black to charcoal, the dream had dissolved into the kind of nothing that was almost worse than something. The sweat on his temples was real, and the rest had simply not survived him waking up.
 "Yeah," Drew said quietly, to the ceiling. "Sure. Cool. Great."
 Banjo, in his sleep, sighed agreement.
-Mira came down the stairs at first light with her hair flattened on the same side it had been flattened yesterday, which Drew was starting to find very specifically charming. She was carrying a wooden tray. The tray contained, by his quick count, approximately the entire output of a small farm.
+Mira came down the stairs at first light with her hair flattened on the same side it had been flattened yesterday, which Drew was starting to find very specifically charming. She was carrying a wooden tray. The tray contained the entire output of a small farm.
 "How many people are we feeding?" Drew asked, sitting up in the quilts.
 "Two," Mira said.
 "Mira, this is — there's, like, an entire pig on this tray."
@@ -22,7 +22,7 @@ He had a piece of bacon in his hand and was working his way along it, focused, h
 "I went out and got the parts I didn't have, very early, while you were sleeping," she said, buttering the bread. "I left a list of trades on the noticeboard. Branwen told me to feed you well today because you have a busy schedule. Apparently."
 "Branwen said that," Drew said.
 "Branwen said that," Mira confirmed. "And Lyselle sent word she expects you, by the way, at her house, sometime this morning. Eat. Don't talk. There are eggs."
-He ate. He drank the coffee-thing, which was now somehow eighty-five percent like coffee, the missing fifteen percent flavor having become a thing he was prepared to miss when he eventually went without it. Banjo, who had wandered over and discovered the bacon situation, was being given small carefully-rationed strips by Mira from her own plate, who had figured out the dog within forty seconds of meeting him yesterday and had not, since, missed an opportunity to court him. Banjo was hers now in a deep structural sense. Drew chose not to mind it.
+He ate. He drank the coffee-thing, which was now eighty-five percent like coffee, the missing fifteen percent flavor having become a thing he was prepared to miss when he eventually went without it. Banjo, who had wandered over and discovered the bacon situation, was being given small carefully-rationed strips by Mira from her own plate, who had figured out the dog within forty seconds of meeting him yesterday and had not, since, missed an opportunity to court him. Banjo was hers now in a deep structural sense. Drew chose not to mind it.
 While he ate, he remembered something.
 He set down his fork. He went over to where his canvas sack was hanging on a peg by the door, fished around in it, and came back with the larger of yesterday's chubchirps, the one he had saved when, halfway through that third bouquet, the affection-per-gift returns had started to flatten out and he had clocked it. He set the chubchirp on the table beside Mira's plate.
 "For you," he said.
@@ -109,7 +109,7 @@ The number on her panel, while she had been answering, had ticked from 22 to 31.
 "I have had two centuries to be sad about her. I am, mostly, no longer sad. She was a good teacher and a good elder and I miss her in the small administrative ways more than the large emotional ones, which is, I think, what she would have wanted." She waved off his sympathy with one long pale hand. "Don't apologize for asking. Ask the next one."
 He thought.
 The obvious questions waited in line in his head: *who built this world*, *why me*, *what does Mira know that she's not telling me*, and the dream one, *what did you mean when you said the system files orientation into dreams, because I keep waking up sweating and I can't remember a thing.*
-He chose, after a moment, the question he thought she could actually answer.
+He chose, after a moment, the question he thought she could answer.
 "What's the shape of this world?" he asked.
 "The shape."
 "Geographically. Where am I. How big is it. What's beyond the village."
@@ -276,14 +276,14 @@ He noted it. He had a working theory about what was happening, and the theory wa
 He pulled back and stripped off his own shirt. Then his pants. Then the rest of it. His cock was already hard enough to be a logistics problem, and Mira, when she opened her eyes and looked down at it, made a small high noise in the back of her throat and said, "*Oh.*"
 That was, he noted, the entire sentence she had available to her on the topic.
 "Yeah," Drew said.
-He watched her watch his cock with the wide red eyes she had used for inspecting his face on the first day, and he could see, on her face, the shape of the longer thing she might have been about to say if her panel had let her, probably something dry and clinical and Mira-shaped to do with him being a generous quantity of man, and the panel at the corner of his vision did not let her. The thing stayed unsaid. The portrait, which was watching him over Mira's drawn-on shoulder, had its tiny inked hand over its tiny inked mouth and was, somehow, also reading the situation.
+He watched her watch his cock with the wide red eyes she had used for inspecting his face on the first day, and he could see, on her face, the shape of the longer thing she might have been about to say if her panel had let her, probably something dry and clinical and Mira-shaped to do with him being a generous quantity of man, and the panel at the corner of his vision did not let her. The thing stayed unsaid. The portrait, which was watching him over Mira's drawn-on shoulder, had its tiny inked hand over its tiny inked mouth, also reading the situation.
 The number was at 91 and climbing. AROUSAL: *Aroused — 71*. The panel was, in the very dim background, chiming softly to itself in a way it had not chimed before, like a kettle that had decided it was on.
 He reached down and pulled the sleep-shirt the rest of the way off her arms, then tossed it on the floor with his own clothes. Mira, naked, was small and pale and pink in patches, with a neat dark patch of hair between her thighs that was, Drew noted in low-grade surprise, the same black as the hair on her head. Her thighs were closed and her hands had clasped themselves, briefly, over her stomach.
 "Mira," he said, low.
 "*Hey,*" she said, and the *Hey* had become, in the last ninety seconds, a multi-purpose word.
 "Open your legs for me."
 She did, slow.
-The number jumped from 91 to 94. AROUSAL ticked from *Aroused — 71* to *Aroused — 78* in one go. The portrait at the corner of his vision, which had been biting its knuckle, had gone fully red across its drawn-on cheekbones and was, somehow, also wide-eyed.
+The number jumped from 91 to 94. AROUSAL ticked from *Aroused — 71* to *Aroused — 78* in one go. The portrait at the corner of his vision, which had been biting its knuckle, had gone fully red across its drawn-on cheekbones and gone wide-eyed too.
 He moved between her thighs and ran two fingers through the slit of her pussy. She was wet, in fact soaked, slick all the way down to where her thighs met the bed, the little folds of her cunt parting easy and warm around his fingers.
 His fingers found her clit. Mira's hips bucked up off the mattress all on their own.
 "*Drew* — "

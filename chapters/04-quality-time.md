@@ -8,7 +8,7 @@ Mira was at a small round table in the back of the shop, already setting out pla
 The table held a loaf of brown bread, a slab of something pale that Drew thought might be cheese, a small earthenware pot of something the color of paprika that smelled like meat and pepper, two wooden bowls, two horn cups, and a clay pitcher of what turned out to be water with a sliced lemon in it. Banjo had relocated from the stove to the table-leg the moment plates appeared, and was staring quietly up at the bread, focused like a Buddhist monk in the middle of a koan.
 "Banjo, no," Drew said. He glanced apologetically at Mira. "Sorry. He has zero shame."
 "He's a guest. He gets crusts." Mira broke the heel off the loaf and set it on the floor without ceremony. Banjo accepted the heel reverently, almost religiously, and took it under the table to deal with privately.
-They both sat down at the table. She ladled out the soup, two bowls, and pushed one across to him without asking whether he wanted it, which was a kind of hospitality he had not encountered in his actual life and was unprepared for. He picked up his spoon.
+They both sat down at the table. She ladled out the soup, two bowls, and pushed one across to him without asking whether he wanted it, which was a kind of hospitality he had not encountered in his life and was unprepared for. He picked up his spoon.
 "What is this," he said.
 "Stew. Beans, smoked fish, whatever was in the pantry. I cheated, it's been on the stove since this morning."
 "You cheated."
@@ -72,7 +72,7 @@ She nodded once, mouth tipping into a small grin. "This specific cheese."
 "Thank you."
 "This cheese is —"
 "You're allowed to be quiet about it."
-He was quiet about it. He took another bite of the cheese. The portrait at the corner of his vision was beaming at him with both its hands clasped in front of its little chin. He did not look directly at it. Looking, he suspected, would somehow be worse for him.
+He was quiet about it. He took another bite of the cheese. The portrait at the corner of his vision was beaming at him with both its hands clasped in front of its little chin. He did not look directly at it. Looking, he suspected, would be worse for him.
 The number, where he could see it, ticked from 14 to 15. Then to 16. The *Tier: Stranger* under it gave a little shimmer he did not entirely understand, and then the words *Tier: Acquaintance* slid into place underneath instead, and below them, the locked MOOD readout unlocked. It went from black-bar to soft green. The number next to it read 62. Below it, *MOOD: Pleased.*
 Mira smiled at him, with her dimples this time. The portrait did the same.
 "There you go," she said.
@@ -103,7 +103,7 @@ Drew put down his spoon.
 "Oh." She made a face. "Oh, no, only same-class. Shopkeeper is for shopkeepers. You'd have to dual-class into it, and you'd have to do that under a Master Shopkeeper, and I'm only Apprentice, my mom never finished training me before — you know. Anyway. So no. Sorry. But the Angler stuff I can do. Come on."
 She was already out the back door. Drew had been about to ask the obvious follow-up about *before — you know*. He let it go. He let it go because she had said it the way people said things they were trying not to say, and he had a working policy now of letting Mira's small sad sentences go past him until she chose to come back to them. He could wait. He was, after all, a fisherman.
 He followed her out.
-The back of the shop was, somehow, even better than the front.
+The back of the shop was even better than the front.
 A wooden deck ran the entire length of the building's lake-facing side, raised on pilings about four feet over the water. The water under the deck was not the lake. It was a creek, a wide, slow-moving creek that branched off the main river to the south and made a green, deep curve right under the building before continuing on toward the lake itself. A short flight of steps led down to a little dock that floated on the creek's surface, tied to the pilings. There was a rod rack screwed to the rail of the deck, with seven or eight rods in it of various lengths, and a small bench beside it with two sealed bait jars and a coil of fresh line. As fishing infrastructure went, it was the most organized and personal arrangement Drew had ever seen. It was a fishing-shaped life.
 "How is this here," he said.
 "What do you mean?"

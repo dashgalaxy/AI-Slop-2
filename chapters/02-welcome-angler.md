@@ -23,12 +23,12 @@ She looked, by Drew's best estimate, twenty-one.
 "You're actually a human." Her hands came down. "I thought I was going to find a goat. Sometimes things wash up. Mostly goats."
 "I'm not a goat," Drew said.
 "No," she agreed, gravely. "You are very much not a goat."
-She took two steps closer, then a third, and stopped about five feet away with her hands clasped in front of her overall bib, which was somehow even more devastating than the hands-over-mouth thing had been. Up close her eyes were not quite garnet, more like wine held up to lamplight, and she was looking at him giraffe-enclosure-on-the-first-really-good-zoo-trip wide.
+She took two steps closer, then a third, and stopped about five feet away with her hands clasped in front of her overall bib, which was even more devastating than the hands-over-mouth thing had been. Up close her eyes were not quite garnet, more like wine held up to lamplight, and she was looking at him giraffe-enclosure-on-the-first-really-good-zoo-trip wide.
 "Can I see your face?" she asked.
 "You are seeing my face," Drew said.
 "I mean closer."
 "I — sure?"
-She closed the distance, reached up on her toes, and peered into his face from about six inches away, intent and scholarly, which should have felt invasive and somehow did not. She smelled like something herbal he didn't recognize. He held very still, partly because he had no idea what the etiquette was, and partly because he was thirty-one years old and had not been looked at this hard by a woman in longer than he could remember.
+She closed the distance, reached up on her toes, and peered into his face from about six inches away, intent and scholarly, which should have felt invasive and didn't. She smelled like something herbal he didn't recognize. He held very still, partly because he had no idea what the etiquette was, and partly because he was thirty-one years old and had not been looked at this hard by a woman in longer than he could remember.
 "Round pupils," she reported, apparently to herself.
 "Yep," Drew said.
 "No second eyelid."
@@ -96,7 +96,7 @@ Drew thought *class info* at the panel, the way he had thought *accept* at it ea
 CLASS CONFIRMED ANGLER (Lv. 1) A practitioner of the line and the long patience. Angler classes are rare in the Hollow of Mireval and tied closely to the village's protection of the lake and its waters. Skills available for allocation: 1.
 He read it aloud.
 The reaction was not what he expected.
-The crowd went very still as one body. Then a soft *oh* rolled around them, somebody at the back actually clapped a hand to her mouth, and Mira, beside him, made a small sound he didn't have time to fully process, because the gold-eyed girl who had asked the question had already grabbed both of his hands in hers, beaming.
+The crowd went very still as one body. Then a soft *oh* rolled around them, somebody at the back clapped a hand to her mouth, and Mira, beside him, made a small sound he didn't have time to fully process, because the gold-eyed girl who had asked the question had already grabbed both of his hands in hers, beaming.
 "Oh my gods," she said, "oh, you're meant to be here—"
 Someone else had grabbed his elbow, somebody else the hem of his flannel. The whole crowd had pressed forward by half a step, the way crowds press forward when they've collectively decided they love something. Drew had been rolled by enthusiastic crowds at exactly zero points in his prior thirty-one years of life. He took a half-step back into Mira and said, in a voice he hoped didn't sound as strangled as it felt:
 "Why?"
@@ -187,7 +187,7 @@ The dog froze.
 Drew had not cried in front of another human being since his grandfather's funeral. He made a sound he was going to be embarrassed about for the rest of his life.
 "Banjo." He was already out of the chair, on his knees on the rug, hand out. "Banjo, hey. Buddy. Hey."
 Banjo took two stiff, suspicious steps forward, sniffed Drew's outstretched fingers, sniffed his knee, then looked up and held Drew's face for a long second with the specific intelligence dogs have when they are being asked to verify something important. Then he climbed bodily into Drew's lap, pressed his soaked head into Drew's chest, and breathed.
-Drew put both arms around the dog and hung on. He said the dog's name a couple more times in a voice that wasn't really working. The lab smelled like wet lake, the kayak, and the back of his truck on a Saturday morning, and underneath that, faintly, like the laundry detergent Drew used on his own sheets, because Banjo slept on the bed and the smell got into his fur. Drew had not been aware that his sheets had a smell. He was aware now.
+Drew put both arms around the dog and hung on. He said the dog's name a couple more times in a voice that wasn't working. The lab smelled like wet lake, the kayak, and the back of his truck on a Saturday morning, and underneath that, faintly, like the laundry detergent Drew used on his own sheets, because Banjo slept on the bed and the smell got into his fur. Drew had not been aware that his sheets had a smell. He was aware now.
 Across from him, Lyselle was very deliberately looking out the window and giving them the room. After a minute she stood, came over, and unbuckled the orange life jacket from the dog without comment, set it on the hearth to dry, and sat back down. Banjo did not appear to register the loss. He was busy.
 After a while, Drew got himself together. Banjo did not get himself together. Banjo had decided this lap was where he lived now, and he was making a series of small contented dog noises that suggested he was at peace with his decisions in life.
 "Thank you," Drew said, eventually, into the top of the dog's head.
@@ -212,7 +212,7 @@ Banjo had decided that the woman in the cut-off overalls was friendly and possib
 "I fuss productively."
 "Go."
 Mira went. Drew went after her, with the dog welded to his calf, and Lyselle closed the green door behind them, and the bolt went home again with the same heavy, definite sound it had made before.
-Out on the lane the village had gone back to a more normal kind of busy. Women were doing the things they had presumably been doing before he arrived, although a fair number of them were doing those things in line-of-sight of the path between Lyselle's house and the bait and tackle shop, which Drew chose to find flattering rather than concerning.
+Out on the lane the village had gone back to a more normal kind of busy. Women were doing the things they had been doing before he arrived, although a fair number of them were doing those things in line-of-sight of the path between Lyselle's house and the bait and tackle shop, which Drew chose to find flattering rather than concerning.
 They walked, Mira beside him and the dog padding between them, occasionally bumping Drew's knee as if to confirm Drew was still there.
 "So," Mira said, after a minute.
 "So," Drew said.
@@ -223,6 +223,6 @@ They walked, Mira beside him and the dog padding between them, occasionally bump
 "I just thought I'd save you a step."
 He glanced down at her. "You sat on her front step the entire time, didn't you?"
 "I did not sit on her front step the entire time," she said, very dignified. "I sat on her front step for *most* of the time. I did a lap once."
-She looked up at him sideways, with the same wide, scholarly red eyes she had aimed at his face when she was figuring out whether he had a second eyelid, except now there was a small, pleased smile underneath them. Drew, walking down a stone lane in a village in a world he hadn't known existed three hours ago, with his dead dog alive at his knee and a girl ten years younger than him beaming at him over his beard, his round pupils, and a class he did not understand, felt for the first time since he had hit the water that he might, possibly, in some shape he would have to work out later, be okay.
+She looked up at him sideways, with the same wide, scholarly red eyes she had aimed at his face when she was figuring out whether he had a second eyelid, except now there was a small, pleased smile underneath them. Drew, walking down a stone lane in a village in a world he hadn't known existed three hours ago, with his dead dog alive at his knee and a girl ten years younger than him beaming at him over his beard, his round pupils, and a class he did not understand, felt for the first time since he had hit the water that he might, in some shape he would have to work out later, be okay.
 He also felt, very distinctly, intimidated.
 He did not entirely mind it.

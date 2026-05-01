@@ -38,7 +38,7 @@ He went back to the quote. Kelsey did not leave. The Kelsey-buff on the desk was
 "It's been almost a year, Drew," she said, quieter now.
 "Eleven months, three days," he said to the screen, "but who's counting."
 "You are, apparently."
-He glanced up. She had tilted her head at him the same way she always did right before getting sincere about something, and Drew had a pretty firm policy against sincerity in his office before five p.m.
+He glanced up. She had tilted her head at him the same way she always did right before getting sincere about something, and Drew had a firm policy against sincerity in his office before five p.m.
 "Fishing tomorrow," he said, before she could land it. "Naskaw. Banjo's coming. I'll be off the water by two."
 "Text me when you're off," she said.
 "Always do."
@@ -57,7 +57,7 @@ Banjo was a six-year-old chocolate lab who had inherited Drew off Grandpa Hal tw
 "Coffee first, bud," Drew said, stepping around him to get to the pot.
 Banjo did not believe in coffee first. Banjo communicated this by parking himself in the middle of the kitchen tile with the life jacket dangling from his jaws and tracking Drew's every step around the room, unblinking, like a dog who had achieved spiritual clarity on the question of priorities and was now waiting for Drew to catch up.
 Drew filled the thermos and filled Banjo's water bowl, which Banjo ignored on principle, then carried the kayak out to the truck in the dark and strapped it to the rack while the dog supervised from the driveway and occasionally barked at a raccoon that wasn't there. By a quarter to five they were out on the county road, Banjo riding shotgun with his nose against the cracked window and the truck's heater clicking through its standard repertoire of complaints.
-The radio was on a country station Drew didn't actually like. His ex-wife had set it there before she moved out, he had been meaning to change it for eleven months, and somehow he never had. He hit the preset for NPR. NPR was hosting a panel on artisanal cheese. Banjo tilted his head at the dashboard like the dashboard had personally insulted him. Drew turned the radio off, and Banjo went back to monitoring the tree line for deer, which the dog had decided was his actual job and took very seriously.
+The radio was on a country station Drew didn't like. His ex-wife had set it there before she moved out, he had been meaning to change it for eleven months, and somehow he never had. He hit the preset for NPR. NPR was hosting a panel on artisanal cheese. Banjo tilted his head at the dashboard like the dashboard had personally insulted him. Drew turned the radio off, and Banjo went back to monitoring the tree line for deer, which the dog had decided was his job and took seriously.
 "You think Hannah likes labs?" Drew asked, glancing over.
 Banjo did not respond. His nose stayed pressed to the glass.
 "Yeah," Drew said. "Me neither."
