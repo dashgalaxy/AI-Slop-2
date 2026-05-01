@@ -16,8 +16,7 @@ They both sat down at the table. She ladled out the soup, two bowls, and pushed 
 "Mhm."
 He ate. The stew was good and the bread was very good. The cheese, which she pushed at him with the implicit instruction to try it, was startling, sharp, almost lemony, with a rind that crumbled like a soft pastry. He ate slowly. He had not realized until he tasted food just how empty he was, and how that emptiness had been part of the disoriented animal-brain feeling he had been navigating for the last few hours. The food settled him, and the cheese in particular performed a small miracle on his nervous system that he was unable to account for.
 Mira watched him eat, smiling the small private smile that came over a person whose food was being properly appreciated. She didn't push conversation on him. She just let him eat, which surprised him, and he was already noticing that she kept being surprising in small, easy ways. She had not been programmed to be considerate, so much as she had simply learned, somewhere along her two-and-a-third centuries, how to be in a room with a person who was tired.
-He had a thought.
-The thought was Tracy.
+A thought arrived: Tracy.
 His cousin Tracy, who had inherited Grandpa Hal's money the same week Drew had inherited the dog and the kayak, was thirty-six now, lived in Madison, and had spent her entire personality from age twenty-two onward on Switch games on the couch with a glass of wine. He had spent a Thanksgiving once, three or four years ago, watching Tracy play something Japanese with cherry blossoms and a hot bartender, and Tracy had made him sit through her explanation of the affection system. He had not been listening. He had been thinking about football. He remembered, however, the broad strokes of what she had said. *You picked a girl. You did things she liked. You answered her questions. You asked her questions. The questions were the engine. The questions opened the cutscenes. The cutscenes opened the next questions. Drew, you literally play dating sims by being interested in another person, that's the entire mechanic, that's why these games are popular with women.*
 He had not understood, at the time, why his cousin had said this with such heat.
 He understood now.
@@ -43,7 +42,7 @@ She thought about it, swirling her spoon slowly through her bowl.
 "Mhm."
 "I keep — I'm sorry, the math just."
 "I know. It's okay." She gave him a small smile. "I forget that the math is weird for you. The math is normal for me."
-He thought, briefly, about the too-short trousers. *Mira's dad.* He pushed it onto the later pile.
+He thought briefly about the too-short trousers. *Mira's dad.* He pushed it onto the later pile.
 "Right. Sorry. Keep going. What were you like as a teenager."
 "Insufferable. I was an insufferable teenager." She said this with such immediate cheer that he almost laughed. "I read a lot of poetry. I was in love with Branwen for about two years and Branwen had no idea, and I cried about it on the dock approximately every other night, and my mom was so patient with me, gods. I wrote things in journals. Bad things. I can't read them now without dying. Hazel can read them, I let Hazel read them sometimes when she's bored, and she just cackles."
 "Branwen the catgirl Branwen."

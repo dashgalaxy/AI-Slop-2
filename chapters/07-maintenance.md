@@ -235,7 +235,7 @@ The number ticked from 63 to 64. To 65. The AROUSAL line, which had been parked 
 "Yeah," he said.
 "You came up here on purpose."
 "Mhm," he said into her hair.
-She had not, he noticed, let go.
+She hadn't let go, he noticed.
 He moved back maybe an inch, just enough to look at her, and brought one hand up to the collar of her sleep-shirt. His thumb hooked the edge of the fabric. He looked at her. He raised an eyebrow, half-questioning, half-not.
 He undid the top button, then the second, then the third, which was as low as the buttons went, and opened the linen shirt the rest of the way with the simple physical motion of a man unwrapping a thing he has been told he is allowed to unwrap.
 "*Hey,*" Mira said.
@@ -259,7 +259,7 @@ She shook her head at the flower-mountain. "That is the most ridiculous thing yo
 "I know," Drew said.
 Down a floor, the lamp on the counter went out on its own, the way lamps go out when nobody is paying attention to them. Banjo, in his nest of blankets, opened one eye, considered the situation, closed it again, and went back to sleep, deeply unbothered, the way a chocolate lab who had heard a lot in his six years of life chose, on certain nights, to mind his own business.
 Up in the small slant-ceilinged room, Mira lowered her hands from her mouth.
-The room was dark except for the thin silver of moonlight through the curtain and the soft patient glow of the panel at the edge of Drew's vision, which had not closed itself, which was, Drew noticed, watching the proceedings with the same calm interest a kitchen timer watches a slow boil.
+The room was dark except for the thin silver of moonlight through the curtain and the soft patient glow of the panel at the edge of Drew's vision, which had not closed itself. The panel was watching the proceedings calmly and patiently, the way a kitchen timer watches a slow boil.
 He kissed her.
 It was the first proper one. He had been collecting kisses at the cheek and the head for two days, and what he gave her now, leaning across the open shirt, was the thing those kisses had been on the way to. Her mouth was warm and a little startled and opened under his after a half-second of catching up. She made a small noise into it, which might have been another *Hey* if it had managed to organize itself into a word, and then her hand came up, found the back of his neck, and stayed there.
 The panel at the corner of his vision quietly did what panels do at moments like this and started accumulating numbers.
