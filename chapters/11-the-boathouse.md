@@ -1,7 +1,7 @@
 # Chapter 11: The Boathouse
 
 The whole village came.
-Drew, who had been told they would, had not entirely believed it. By the time the third bell rang, every single woman whose name he had learned, plus a number whose names he had not yet learned, plus several more in the back who he was reasonably sure were Branwen's cousins coming out of hiding for the occasion, plus Iren Holloway with her tortoiseshell cat on her shoulder, plus four foxes trailing Vesha at a discreet distance, were standing on the lane between Mira's shop and the bank of the creek that the boathouse was tied to. There were maybe sixty people. Drew, who had not yet successfully imagined that there were sixty people in Mireval, was learning otherwise.
+Drew, who had been told they would, had not entirely believed it. By the time the third bell rang, the lane between Mira's shop and the bank of the creek that the boathouse was tied to had filled with every single woman whose name Drew had learned, plus a number whose names he had not yet learned, plus several more in the back who he was reasonably sure were Branwen's cousins coming out of hiding for the occasion. Iren Holloway came too, with her tortoiseshell cat on her shoulder, and four foxes trailed Vesha at a discreet distance. There were maybe sixty people. Drew, who had not yet successfully imagined that there were sixty people in Mireval, was learning otherwise.
 Mira was at the front in a dress he had not seen her in before, soft blue like a clear lake afternoon, her hair tied back with a strip of green ribbon. Lyselle was at her shoulder in the cream-colored sweater, with her white braid laid carefully forward this morning instead of back. Branwen stood at the door of the boathouse with one proprietary hand on the doorframe, possessive of the thing she had built, and the other holding a small, theatrical-looking brass key on a leather cord.
 The whole village was looking at Drew.
 "Right," Drew said, and then said nothing else for a beat, because that was as far as he had thought the speech.
@@ -111,7 +111,7 @@ Not tonight, and not tomorrow. In the meantime, he would be a fisherman, and a h
 And in the long meantime, in the unhurried patient way of a man who had been raised to fish, he was going to figure out what was past where letters could follow you.
 Mira, in her sleep, made a small contented sound and pressed her forehead against his shoulder.
 Lyselle, on the other side, did not stir, but moved one of her long pale hands so that the back of it rested, lightly, against his ribs.
-Drew Halloran, Angler Lv. 5, protagonist of the Hollow of Mireval, owner of one floating boathouse, holder of forty-seven gold and twenty-two unspent bouquets, husband-presumptive to one half-elf shopkeeper and a lengthening list of others, possessor of one chocolate lab, lay in his bed in his new house and looked up at the slope of his own ceiling.
+Drew Halloran lay in his bed in his new house and looked up at the slope of his own ceiling: Angler Lv. 5, protagonist of the Hollow of Mireval, owner of one floating boathouse, holder of forty-seven gold and twenty-two unspent bouquets, husband-presumptive to one half-elf shopkeeper and a lengthening list of others, possessor of one chocolate lab.
 He thought, *Lila. I'll see you. I'll find you.*
 He closed his eyes.
 Out the east window, the first faint paleness of morning began, somewhere a long way off, to come up over the lake, and the bell at the Hall, still some hours from ringing, hung in its tower, waiting.
