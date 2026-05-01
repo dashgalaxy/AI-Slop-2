@@ -222,7 +222,7 @@ They walked, Mira beside him and the dog padding between them, occasionally bump
 "That was the plan."
 "I just thought I'd save you a step."
 He glanced down at her. "You sat on her front step the entire time, didn't you?"
-"I did not sit on her front step the entire time," she said with great dignity. "I sat on her front step for *most* of the time. I did a lap once."
+"I did not sit on her front step the entire time," she said, very dignified. "I sat on her front step for *most* of the time. I did a lap once."
 She looked up at him sideways, with the same wide, scholarly red eyes she had aimed at his face when she was figuring out whether he had a second eyelid, except now there was a small, pleased smile underneath them. Drew, walking down a stone lane in a village in a world he hadn't known existed three hours ago, with his dead dog alive at his knee and a girl ten years younger than him beaming at him over his beard, his round pupils, and a class he did not understand, felt for the first time since he had hit the water that he might, possibly, in some shape he would have to work out later, be okay.
 He also felt, very distinctly, intimidated.
 He did not entirely mind it.

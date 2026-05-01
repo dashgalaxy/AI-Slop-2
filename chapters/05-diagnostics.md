@@ -14,7 +14,7 @@ Mira came down the stairs at first light with her hair flattened on one side and
 "I thought you'd have gone fishing already."
 "It's early."
 "It's late, for an Angler." She gave him a small unimpressed look, the kind of look she clearly reserved for men still in floor-quilts at dawn while mocking her routine, and came the rest of the way down.
-She padded across the floor in her bare feet and dropped into a crouch beside his nest, peering down at him. The portrait at the corner of his vision, which had been off for the night somehow, came back online with a small chime and yawned theatrically before settling into the cheerful watchfulness it usually wore.
+She padded across the floor in her bare feet and dropped into a crouch beside his nest, peering down at him. The portrait at the corner of his vision, which had been off for the night somehow, chimed quietly back online and yawned theatrically before settling into its usual cheerful watchfulness.
 "Bad sleep?" she asked, tilting her head.
 "Weird sleep."
 "Dream?"
@@ -90,7 +90,7 @@ The carpenter was a stranger and a tool. He needed her for the house. He would a
 The other girls, he had not yet met properly, and could not assess.
 The system itself was, Drew thought, the thing that interested him the most in the long term and which he had the least access to. It told him exactly enough about its mechanics to operate it, and nothing about its provenance. It awarded him a hidden flag for asking the right questions, muted itself occasionally when grief happened, and had, somehow, returned his dog to him, which was either a kindness from the people behind the system or an insidiously well-targeted carrot. He did not know yet.
 What he did know was that the only way to learn more was to play, and he did not love that as a conclusion. He cast.
-The morning passed. He caught chubchirps and a brassy thing Mira had not had a name for, and a small bottom-feeder he was almost certain was a bullhead, and twice the rod went still and he watched a glowing blue outline approach his bait under the surface and then change its mind and drift away. Banjo woke up halfway through and watched the fish parade with quiet professional interest. The light got better and the fog burned off. Somewhere down the lane the bell at the Hall rang the third bell, and a few minutes after that the smell of woodsmoke from the smithy started. The portrait at the corner of his vision, who had nothing to look at because Mira was not present, sat in profile, watching the water with him.
+The morning passed. He caught chubchirps and a brassy thing Mira had not had a name for, and a small bottom-feeder he was almost certain was a bullhead, and twice the rod went still and he watched a glowing blue outline approach his bait under the surface and then change its mind and drift away. Banjo woke up halfway through and watched the fish parade, quietly and professionally interested. The light got better and the fog burned off. Somewhere down the lane the bell at the Hall rang the third bell, and a few minutes after that the smell of woodsmoke from the smithy started. The portrait at the corner of his vision, who had nothing to look at because Mira was not present, sat in profile, watching the water with him.
 The system chimed.
 LEVEL UP — ANGLER LV. 2 You have earned 1 stat point and 1 skill slot. Allocate at your convenience.
 He thought *skills*.
@@ -224,7 +224,7 @@ He took his time with it. He slid the hand at the small of her back lower, delib
 She made a small noise against his shoulder. *Hey.* She did not pull away, her arms stayed loose around his shoulders, but she squirmed a little, the way a cat squirms when it has been picked up wrong, and made the noise again, less muffled. *Drew.*
 The number dropped from 44 to 37. The Mood readout, which had been a soft pleased-green, shifted to a flicker of pinker-amber and the word MOOD read *Annoyed.* The portrait at the corner of his vision crossed her arms in his peripheral vision while the actual Mira was still pressed against his ribs.
 He held the hand there for another half-second, just to confirm the read, and let her go.
-She stepped back, crossed her arms for real, exactly the way the portrait had, and raised one eyebrow. The annoyance on her face was, Drew could see it clearly now, exactly the annoyance her face had been wearing yesterday after the first slap, like a costume she had pulled on out of the same drawer.
+She stepped back, crossed her arms for real, exactly the way the portrait had, and raised one eyebrow. The annoyance on her face was, Drew could see it clearly now, exactly the annoyance her face had been wearing yesterday after the first slap, the same costume from the same drawer.
 "*Drew.*"
 "I know," he said, watching her panel.
 "You are a *brat.*" She tipped her chin up at him, eyebrow still raised.
@@ -240,7 +240,7 @@ He went back out and picked a third handful, this one with grass blades twined i
 He came back. He held them out across the deck rail.
 The number ticked from 46 to 49. Then to 50. Then it shimmered, and *Tier: Friend* gave its little dissolve, and *Tier: Colleague* slid into place under her name. The locked AVAILABLE REQUESTS readout unlocked, lighting up amber. Two options were listed in muted text:
 Request: Take Me Fishing on the Lake Request: Show Me Your Old World
-Mira looked at him over the top of the third bouquet, mouth doing a small pleased smile, the cross-armed annoyance gone like a switch had been flipped.
+Mira looked at him over the top of the third bouquet, her mouth tipped into a small pleased smile, the cross-armed annoyance gone instantly.
 "That was a very good third bouquet," she said, brushing the grass-blade with her thumb.
 "My grandma taught me."
 "Tell your grandma I said thank you."

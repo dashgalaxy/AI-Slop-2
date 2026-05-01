@@ -47,7 +47,7 @@ AROUSAL: Fond — 12
 "Your face is a little red," she said, leaning across the table to peer at him.
 "My face is *not.*"
 "Drew Halloran," she said, settling back, "your face is a darling color."
-She came around the table, leaned down, and kissed him briefly on the right cheek, near the corner of his mouth, with a small soft sound. She smelled like warm bread. The number on the panel ticked from 58 to 61. The AROUSAL readout, doing whatever it was now doing, shifted from *Fond — 12* to *Fond — 14*, and the portrait at the corner of his vision had gone briefly pink again across her cartoon cheekbones.
+She came around the table, leaned down, and kissed him briefly and softly on the right cheek, near the corner of his mouth. She smelled like warm bread. The number on the panel ticked from 58 to 61. The AROUSAL readout, doing whatever it was now doing, shifted from *Fond — 12* to *Fond — 14*, and the portrait at the corner of his vision had gone briefly pink again across her cartoon cheekbones.
 She straightened up, looking very pleased with herself.
 "There," she said. "Companion-tier kiss. First milestone act of physical affection. Welcome to my second-most-trusted social tier."
 "What's the most-trusted?" Drew asked.
@@ -200,7 +200,7 @@ The afternoon passed on Mira's back dock with the sort of quiet that did not req
 He thought about what Lyselle had said, without the pressure of having to say anything back about it. He turned over the agricultural model in his head, weighing the village as a *match* rather than a *reward*, and the difference in the words. He pictured the women he had met as children once, somewhere, of somebody, who had grown up and become themselves and were now waiting on the docks of their own villages for their own protagonists to come through and give them the next round. There was Mira making cheese and not having anyone here to teach her any new recipes for two hundred years, waiting for someone to feed it to, and Branwen sketching imaginary protagonist houses since she was nineteen.
 *As real as they seem to be*, he thought.
 He decided, quietly and clearly, the same way he had decided things on yesterday's dock, that he was going to play. He was going to play hard, play decently, pay the system tax cheerfully, let himself like the people he liked, and let the cosmology be a thing he learned about over years rather than a thing he tried to crack in a week. Lyselle was right that he was a man on his third day. He could build a boathouse, level up a shopgirl, a carpenter, and an elder, and however many of the other women of Mireval would have him, and he could father, apparently, the next generation of denizens of other small heavens, somewhere down the long slow propagation of this thing he was now part of. Mostly, he could fish.
-He could, he realized with a small surprised gladness he had not expected to feel any time soon, be happy.
+He could, he realized, surprisingly and gladly, be happy, which he had not expected to feel any time soon.
 The sun went the rest of the way down. Banjo, who had been napping off and on, woke up, stretched, and looked at Drew expectantly. The bell rang the eighth, which Drew now understood to be a signal for villagers to start heading inside.
 He stood up, gathered his things, and carried his perch, his rod, and his dog up the steps and into the back of Mira's shop.
 Then, on his way past the meadow at the south side of the dock, he stopped, stood for a beat in the dusk, and looked at the meadow, full of small purple things and yellow things and white star-shaped things. He thought about the gauge on Mira's panel, about how forgiving she had said it was, how she had walked him through the bonk-and-recover loop on her own deck like a tutorial, how she had told him in that hour, more than once, in slightly different words each time, that the gauge was the curriculum and the curriculum was the point.
@@ -219,7 +219,7 @@ He went up the stairs.
 Mira's bedroom was small. It had a slanted ceiling under the slate of the roof, a single window with a thin curtain pulled across it, a chair with clothes folded on it, a low chest at the foot of the bed, and the bed itself, which was wide enough for two and currently contained one Mira in a pale linen sleep-shirt, asleep on her side with her short black hair stuck up at the back where she had been lying on it.
 Drew set his boots on the chair and his rod against the wall by the door. He crossed the room as quietly as he could manage, which was not very quietly, and the floorboards creaked under his weight enough that the dog asleep one floor below sighed in his sleep.
 He climbed into the bed.
-Mira startled awake with a sharp small breath, half-sat-up, and went, "*Hey!*"
+Mira startled awake sharply, half-sat-up, and went, "*Hey!*"
 "Hi," Drew said.
 "Drew Halloran." She blinked at him in the dark, registering. "What — hi. Hi. What are you doing?"
 "Coming to bed."
@@ -229,7 +229,7 @@ He pulled her gently into a hug, one arm around her shoulders, the other around 
 The number on the panel, which had been at 64, had dropped to 63 when she'd startled. While she was tucked against him, with the sleep-warmth of her coming through the linen, he leaned in and kissed her on the cheek where he had been kissed at breakfast.
 "You're warm," he said, against her ear. "You smell good. I've been thinking about you all afternoon."
 The number ticked from 63 to 64. To 65. The AROUSAL line, which had been parked at *Fond — 14* all day, ticked to *Fond — 18*.
-"Drew Halloran," Mira said, with a small breathy quality to her voice that was new to him. "You absolute menace."
+"Drew Halloran," Mira said, her voice gone slightly breathy in a way that was new to him. "You absolute menace."
 "Yeah," he said.
 "You came up here on purpose."
 "Mhm," he said into her hair.
@@ -266,7 +266,7 @@ He moved the hand at her collar to the open shirt itself and pushed it the rest 
 She let him.
 Her tits were small and very warm, paler than the rest of her, with two soft pink nipples that tightened the second the cool air of the bedroom touched them. He cupped the left one in his hand and ran his thumb over the nipple, watching her face, and Mira made a small startled sound and her eyes went briefly wide and then closed.
 The number ticked from 84 to 87. AROUSAL: *Wanting — 53.*
-"*Hey,*" Mira said, but it was a different *Hey* than any of the previous *Heys*, and it was not, Drew noted with the small remote analytic part of his brain that was still keeping notes, accompanied by a number drop. The system was, on inspection, fine with this. The system was, on inspection, somewhere between mildly approving and frankly enthusiastic.
+"*Hey,*" Mira said, but it was a different *Hey* than any of the previous *Heys*, and it was not, the small remote analytic part of his brain still keeping notes flagged, accompanied by a number drop. The system was, on inspection, fine with this. The system was, on inspection, somewhere between mildly approving and frankly enthusiastic.
 He bent down and put his mouth on the same nipple his thumb had just been on.
 "*Drew* — "
 It came out small and strangled. The number ticked from 87 to 90. AROUSAL: *Aroused — 64.*
@@ -311,7 +311,7 @@ He fucked her harder, the way her hips were asking him to, and the bed creaked u
 She came first.
 He felt her cunt clench around his cock in a series of fast hot pulses, her whole body went rigid against him, her nails dug into his shoulder blades, and she said his name one more time in a voice that had gone wrecked and high. The panel chimed approvingly. AROUSAL hit its cap and stayed there, the bar pulsing softly. AFFECTION ticked from 98 to 100, and then, instead of stopping, kept climbing past it, while the *Tier: Companion* under it dissolved and *Tier: Lover* slid into place.
 Drew did not, on inspection, last much past the tier change.
-He pulled out at the last second, and *Pull Out* logged itself with a small acknowledging chime in the corner of his vision as he came on her stomach in long hot pulses, watching her face. Mira, still on the downslope of her own thing, made a small breathless sound and brought one hand down to where he had landed, trailing her fingers through it with the same scholarly seriousness she had used to inspect his eyes on the path on the first day.
+He pulled out at the last second, and *Pull Out* logged itself in a small acknowledging chime at the corner of his vision as he came on her stomach in long hot pulses, watching her face. Mira, still on the downslope of her own thing, made a small breathless sound and brought one hand down to where he had landed, trailing her fingers through it as scholarly-seriously as she had inspected his eyes on the path on the first day.
 "Huh," Mira said, looking at it.
 "What?" Drew said, breath still uneven.
 "That is — you are a very generous quantity of man, Drew."
