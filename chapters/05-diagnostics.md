@@ -231,13 +231,12 @@ She stepped back, crossed her arms for real, exactly the way the portrait had, a
 "I know."
 "You owe me flowers." She said it the way a person says *that's two days you owe me on the rent*, annoyed, but with the annoyance already shelved somewhere it wasn't going to bother her again. "Go on."
 "Working on it." He was already moving for the deck rail.
-There was a meadow on the far side of the deck, sloping down toward the creek, and it was full of small purple things and yellow things and a kind of white star-shaped thing that he was going to choose to assume was not poisonous. He picked a handful. He came back. He held them out to her over the rail.
+There was a meadow on the far side of the deck, sloping down toward the creek, full of small purple things and yellow things and white star-shaped things he was going to choose to assume were not poisonous. He picked a handful, came back, and held them out to her over the rail.
 She took them. The portrait went pleased. The number ticked from 37 to 41.
 She inspected the bouquet, plucked the purple ones out, and laid them across the top with the dignified focus of a small piece of organizing.
 "Better," she said. "Three more like this."
-He went back out and picked another handful, just the purple ones this time, because she had picked the purple ones out of the first bunch and put them in front. He gave them to her. The number ticked from 41 to 46.
-He went back out and picked a third handful, this one with grass blades twined in for ornament, because that was a thing his grandma had done at the cabin on weekends, twining grass into wildflowers so the bouquet had structure.
-He came back. He held them out across the deck rail.
+He went back out and picked another handful, just the purple ones this time, because she had picked the purple ones out of the first bunch and put them in front. He gave them to her, and the number ticked from 41 to 46.
+He went back out a third time and picked a handful with grass blades twined in for ornament, the way his grandma had done at the cabin on weekends, so the bouquet had structure. He came back and held them out across the deck rail.
 The number ticked from 46 to 49. Then to 50. Then it shimmered, and *Tier: Friend* gave its little dissolve, and *Tier: Colleague* slid into place under her name. The locked AVAILABLE REQUESTS readout unlocked, lighting up amber. Two options were listed in muted text:
 Request: Take Me Fishing on the Lake Request: Show Me Your Old World
 Mira looked at him over the top of the third bouquet, her mouth tipped into a small pleased smile, the cross-armed annoyance gone instantly.

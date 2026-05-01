@@ -82,7 +82,7 @@ Banjo's ears were already up.
 "We're heading in, bud."
 He stowed the rod under the bungees, swung the bow toward the launch, and dug.
 The squall hit between one stroke and the next.
-Rain came at him sideways. Whitecaps were standing where ripples had been thirty seconds ago. The kayak pitched hard to starboard and Drew slapped the paddle flat against the surface to keep from going over, then again on the other side as the next gust shoved him the opposite way. Banjo was already flat in the bow well, soaked, ears pinned, looking up at Drew the way a dog looked at a human when the dog had decided this particular emergency was above his pay grade.
+Rain came at him sideways. Whitecaps were standing where ripples had been thirty seconds ago. The kayak pitched hard to starboard and Drew slapped the paddle flat against the surface to keep from going over, then again on the other side as the next gust shoved him the opposite way. Banjo was already flat in the bow well, soaked, ears pinned, calmly certain that this particular emergency was above his pay grade.
 "Yeah, I see it," Drew said through clenched teeth, bracing again. "Hang on."
 He dug. He had been paddling these lakes since he was twelve, he was strong, and none of it mattered, because the wind was a solid wall pushing back. The Hobie was a sit-on-top built for stability rather than speed, which on most days was a feature, and today made it a brick.
 He could see the launch and his truck in the lot, and they sat there at the same distance no matter how hard he dug, looking like a screensaver of the place he was trying to get back to.

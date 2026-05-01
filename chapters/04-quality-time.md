@@ -165,9 +165,7 @@ The number on the panel went from 26 to 41.
 The *Tier: Acquaintance* under it shimmered the way it had before, and then *Tier: Friend* slid into its place. The locked OPINION readout, under that, unlocked, filling in from black to a soft amber.
 It said:
 OPINION OF DREW Handsome Savior
-He read it.
-He read it twice.
-He did not say anything.
+He read it twice through and did not say anything.
 Mira pulled back and held him by both shoulders at arm's length and gave him a small, ferocious smile.
 "I'm going to teach you Fisherman's Sight," she said, "and then we're going to keep fishing until sundown because I have decided. Okay?"
 "Okay."

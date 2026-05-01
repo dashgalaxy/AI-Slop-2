@@ -26,7 +26,7 @@ She raised the rim of her teacup half an inch in his direction, the way one rati
 "Drew. That had better be a promise and not a prediction."
 "It's a promise," Drew said.
 "Mhm." She lowered the cup, satisfied.
-The portrait at the corner of his vision, for Lyselle, who had been watching all of this with the same air of patient amusement as the actual Lyselle, gave him a small approving nod.
+The portrait at the corner of his vision, for Lyselle, had been watching all of this as patiently and amusedly as the actual Lyselle, and now gave him a small approving nod.
 Branwen came up beside him with a cup of the cold mint thing. She handed it over without ceremony, which was, with Branwen, the ceremony.
 "Halloran," she said, "it's a good house."
 He looked at the line of the deck, the wraparound porch he had not earned, the spot where she had pulled the hearth-stones out of the river bottom in three pieces and reassembled them. He had spent his career adjacent to people who were very good at things, and he could feel it in the framing under his feet.
@@ -56,7 +56,7 @@ By the ninth bell, the boathouse was, all of a sudden, mostly empty.
 The fire was still going. Banjo, finally released from the dancefloor with his grass crown intact, was asleep on the new runner in front of the hearth in a deep contented coma. Mira stood at the kitchen counter rinsing cups, and Lyselle had taken the front-room chair Iren had vacated, watching the fire over a fresh cup of tea that had appeared from nowhere.
 Drew came in from the porch. He had been, for a minute, alone out there with the lake.
 Mira and Lyselle looked at him.
-They looked at him the way two women look at a man when they have, between them, sometime during the last hour of the party, made a small joint executive decision and are about to inform him of it. Drew, who had spent thirty-one years having this exact look directed at him by women who were about to tell him something, recognized it from the door.
+They looked at him as two women look at a man when they have, between them, sometime during the last hour of the party, made a small joint executive decision and are about to inform him of it. Drew had spent thirty-one years having this exact look directed at him by women who were about to tell him something. He recognized it from the door.
 "Drew," Lyselle said pleasantly.
 "Yes, Lyselle," Drew said, stopping where he was.
 "You don't, technically, have furniture yet."
@@ -90,7 +90,7 @@ He stopped talking. Lyselle raised her teacup an inch in his direction, like a s
 "Go upstairs."
 "Yeah," he said.
 He went upstairs.
-The fire downstairs banked itself slowly down to coals, the way fires do when nobody is paying attention to them. Banjo, on his runner, slept the deep sleep of a chocolate lab who had successfully hosted a party. Mira and Lyselle came up the stairs after him in the unhurried way of two women who had walked up many stairs together over many decades and saw no reason to be efficient about this one.
+The fire downstairs banked itself slowly down to coals, the way fires do when nobody is paying attention to them. Banjo, on his runner, slept the deep sleep of a chocolate lab who had successfully hosted a party. Mira and Lyselle came up the stairs after him unhurriedly. They had walked up many stairs together over many decades, and saw no reason to be efficient about this one.
 The lamp in the upstairs bedroom went on. Then it went off.
 The slate roof over the boathouse settled the way roofs settle, in small periodic clicks of wood that had chosen its shape. The lake below the pilings did its quiet, lake-night thing. Out on the lane, the bell at the Hall rang the tenth and was done for the evening.
 The boathouse, on its first night, was not unused.
@@ -108,7 +108,7 @@ Mira, in her sleep, breathed out and turned her face into the side of his arm.
 He brushed the thought aside, like a thing he was not yet ready to put on a workbench. It was, after all, just a dream, a thing one elder had heard a couple of versions of in two centuries of correspondence, and which she had told him to wait on. The Mira against his ribs was a real woman who had said yes and meant it. The doll-mode was the system's, not his. He told himself that, and noticed, on the second telling, that he was telling himself.
 He was going to find that figure.
 Not tonight, and not tomorrow. In the meantime, he would be a fisherman, and a husband, eventually, of one or two or several of the women in his life, and the father, system willing, of a girl named Lila with Mira's red eyes, who he was, in advance, already in love with. He would live in his boathouse, drink Pip's mint thing, learn to swim from Ophelia, earn Iren Holloway's brine, and get Iri to Friend tier in her own slow time.
-And in the long meantime, in the unhurried patient way of a man who had been raised to fish, he was going to figure out what was past where letters could follow you.
+And in the long meantime, unhurriedly and patiently, the way a man raised to fish would, he was going to figure out what was past where letters could follow you.
 Mira, in her sleep, made a small contented sound and pressed her forehead against his shoulder.
 Lyselle, on the other side, did not stir, but moved one of her long pale hands so that the back of it rested, lightly, against his ribs.
 Drew Halloran lay in his bed in his new house and looked up at the slope of his own ceiling: Angler Lv. 5, protagonist of the Hollow of Mireval, owner of one floating boathouse, holder of forty-seven gold and twenty-two unspent bouquets, husband-presumptive to one half-elf shopkeeper and a lengthening list of others, possessor of one chocolate lab.

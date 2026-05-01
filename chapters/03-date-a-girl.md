@@ -6,7 +6,7 @@ She talked about the shop, which she had taken over from her mother, who had tak
 "Okay," Mira said, fishing a small iron key out of the front pocket of her overalls. "Okay, here we are. Mind the step, it's higher than it looks. Mind the dog, he's already eaten one of my mom's needlework cushions and he's going to want to eat the other." She glanced down at Banjo as she fit the key into the lock. "Sorry, dog, I don't even know your name, I'm sorry, I'm Mira, you can keep doing what you're doing."
 Banjo, having sniffed the rocking chair cushion and apparently approved of it, was already trying to climb onto it.
 "Banjo, off," Drew said.
-Banjo dropped his butt onto the porch boards with a thud and looked up at Drew, deeply affronted, like a dog who had been told no for the first time in three days and was personally injured by the experience.
+Banjo dropped his butt onto the porch boards with a thud and looked up at Drew, deeply affronted, having been told no for the first time in three days and personally injured by the experience.
 Mira unlocked the door and bumped it open with her hip.
 The inside of the shop smelled like wax and pine resin and, faintly, fish. The front room was narrow and tall, with a counter running the length of one wall and a forest of fishing rods racked vertically behind it. Lures hung from the rafters on lengths of twine, swaying in tiny currents Drew couldn't feel. There were jars on the shelves containing things he could not immediately classify, some of which appeared to be looking back at him. A potbelly stove sat unlit in the back corner with a kettle on top, and a doorway behind the counter led, presumably, to a back room and a stairs.
 "Sit," Mira said, gesturing at a low stool by the counter as she swept past him. "I'll put water on. Are you hungry? You look hungry. You must be starving. Are you cold? Of course you're cold." She crouched by the stove and reached for a metal bowl. "Banjo, sweetheart, there's a bowl by the stove I'll fill it, hold on."
@@ -25,7 +25,7 @@ She tilted her head. "Has anyone walked you through your interface yet?"
 "All of it. The tabs. The HUD. The whole." She waved her hands in front of her face vaguely, as if drawing a window in the air. "The whole *thing*. There's so much we have to explain to you and I want to do it right. Some of the others were going to dog-pile you on the lane and just shout instructions and I almost died, that's not how you do this."
 "There's a — how I do this?"
 "There's absolutely a how you do this. Drew." She leaned forward on the counter, elbows on her knees. "Can I show you Date-A-Girl?"
-Drew held her gaze for a beat that stretched long inside his head before snapping back to its actual length, which was about a second.
+Drew held her gaze. The beat stretched long inside his head before snapping back to its actual length of about a second.
 "I'm sorry," he said. "Can you show me what now?"
 "It's not — okay, it has a stupid name, I know it has a stupid name." She was already waving both hands like she was wiping the stupid name out of the air. "We've been calling it that since I was little. The actual term is the Companion HUD or sometimes the Affection Interface but everybody calls it Date-A-Girl. Even my grandma. Even the men call it Date-A-Girl, when they're talking to each other, when they think no one's listening. It's just what it's called."
 "Date-A-Girl," Drew repeated.
@@ -101,7 +101,7 @@ He waited for her to look back at him.
 "Two hundred and thirty-something. Yeah."
 "And you're — you said early twenties, you said you're twenty-two, you. *How does that—*"
 "Because we're frozen."
-She said it without any particular weight. She said it the way somebody might say *because the door's blue.* She had her elbows on the counter and her chin propped on her fist, and she said it like she had said it a thousand times to traveling merchants and curious goats, and she did not appear to find the saying of it interesting.
+She said it without any particular weight, the way somebody might say *because the door's blue.* Her elbows were on the counter and her chin was propped on her fist, and the saying came out like she had said it a thousand times to traveling merchants and curious goats and didn't find it interesting.
 "Frozen," Drew said.
 "Frozen. Everybody in the village. Always. We hit our adult shape and then the system locks us in. It's fine." She waved her free hand at the room as if the room was evidence. "Things don't change here. We don't age, we don't get sick, we don't wear out, and nothing in the village really breaks down. It's actually really nice if you don't think about it too hard."
 "Wait, *nothing*—"

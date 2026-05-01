@@ -115,7 +115,7 @@ He chose, after a moment, the question he thought she could actually answer.
 "What's the shape of this world?" he asked.
 "The shape."
 "Geographically. Where am I. How big is it. What's beyond the village."
-"Ah." She leaned back in her chair, settling in. She thought about how to start, the way a teacher thinks about how to start, and she started.
+"Ah." She leaned back in her chair, settling in. She thought about how to start, took a teacherly breath, and started.
 "Picture a ring. A long, narrow ring, of villages, set along a river that runs in a slow circle. Ten villages, give or take a few that have been folded into other ones over the centuries. Mireval is one of them. The others, in order along the river going south, are Bekkesfen, Otterwell, Coldmere, the Twin Ralses, which count as one, Linnow, the Reeve, Saltarrow, and the village that doesn't have a name and we just call the Drift. Then back around to us. Every village is its own small heaven, more or less, with its own lakes, specialties, and denizens. Some take protagonists more often than others. Some, like ours, take them rarely."
 "Ten villages," Drew repeated.
 "Roughly ten."

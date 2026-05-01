@@ -23,7 +23,7 @@ She looked, by Drew's best estimate, twenty-one.
 "You're actually a human." Her hands came down. "I thought I was going to find a goat. Sometimes things wash up. Mostly goats."
 "I'm not a goat," Drew said.
 "No," she agreed, gravely. "You are very much not a goat."
-She took two steps closer, then a third, and stopped about five feet away with her hands clasped in front of her overall bib, which was somehow even more devastating than the hands-over-mouth thing had been. Up close her eyes were not quite garnet, more like wine held up to lamplight, and she was looking at him the way a kid looks at the giraffe enclosure on the first really good zoo trip of their life.
+She took two steps closer, then a third, and stopped about five feet away with her hands clasped in front of her overall bib, which was somehow even more devastating than the hands-over-mouth thing had been. Up close her eyes were not quite garnet, more like wine held up to lamplight, and she was looking at him giraffe-enclosure-on-the-first-really-good-zoo-trip wide.
 "Can I see your face?" she asked.
 "You are seeing my face," Drew said.
 "I mean closer."
@@ -69,7 +69,7 @@ The village was called the Hollow of Mireval, which Mira said was just Mireval m
 "My grandmother runs the schedule. The schedule runs the bell." She gave him a sidelong look. "Don't fight her on it."
 They had not gotten more than twenty paces into the village before someone saw him.
 The someone was a girl up a ladder painting a window frame, who took one look at Drew, nearly fell off her ladder, said "Oh my GODS," and was off the ladder and sprinting down the lane shouting before Drew could even raise a hand to suggest she not. Inside of ninety seconds, the lane had filled with women. They came out of doorways and around corners and over fences. Two emerged from the bathhouse wrapped in towels and turned around immediately when they realized they had emerged from the bathhouse wrapped in towels. Drew, gallantly, found a particularly interesting cobblestone to stare at.
-By the time he looked up, the crowd around him was somewhere north of fifteen people deep, every single one of them a woman, and every single one of them startlingly beautiful, which was beginning to register with Drew as alarming rather than flattering. They were also, almost without exception, his idea of young, mostly early twenties, with maybe a few who could have been pushing thirty. He had not seen a single man so far, and no children either, come to think of it, unless one or two of the smaller ones counted, although they had ears and tails and proportions he didn't trust himself to age accurately.
+By the time he looked up, the crowd around him was somewhere north of fifteen people deep, all of them women, all startlingly beautiful, which was beginning to register with Drew as alarming rather than flattering. They were also, almost without exception, his idea of young, mostly early twenties, with maybe a few who could have been pushing thirty. He had not seen a single man so far, and no children either, come to think of it, unless one or two of the smaller ones counted, although they had ears and tails and proportions he didn't trust himself to age accurately.
 "Mira," he said out of the side of his mouth, leaning down toward her. "Mira, where are the men in this village."
 "There aren't any," she said, not looking at him.
 "There aren't—"
@@ -107,7 +107,7 @@ The answers came at him layered, half a dozen voices overlapping at once. He cau
 "Branwen, *don't*," Mira hissed, grabbing for the gold-eyed girl's sleeve.
 "Listen," Drew said, raising both hands and trying to get the lane to settle, "all of this is great, this is, this is a lot, but I really need to figure out how to get home, and—"
 The lane went quiet again.
-It went quiet in a different way this time. The first quiet had been awe. This was the quiet of a room full of people who had just heard a child say something heartbreaking and were trying to find the right faces to make.
+It went quiet in a different way this time. The first quiet had been awe. This second quiet hung the way a room hangs when everyone has just heard a child say something heartbreaking and is trying to find the right face to make.
 The gold-eyed girl let go of his hands. The catgirl with the gray hair turned her head away. Hazel, still standing within touching distance, had taken her hand off his beard and pressed it flat against her own collarbone. Mira was looking at the ground.
 Drew opened his mouth to ask what he had said, and a voice he had not heard yet cut clean through the lane like a knife through soft butter.
 "That's enough."
