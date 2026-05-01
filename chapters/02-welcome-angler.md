@@ -1,7 +1,7 @@
 # Chapter 2: Welcome, Angler
 
 Drew was a competent swimmer the way most American men were competent swimmers, meaning he could keep himself alive in flat water for a reasonable amount of time and had no business doing anything more ambitious. He swam in flannel, jeans, and boots, and the boots in particular were of the strong opinion that he should not be swimming at all. The blue panel followed him.
-It hovered politely in the upper-right quadrant of his peripheral vision, gliding along like a heads-up display in a video game he had not chosen to launch. Every time he turned his head it adjusted, which on its own was unsettling enough that he stopped trying to look at it directly and resorted to glancing at it sideways like a deer.
+It hovered politely in the upper-right quadrant of his peripheral vision, gliding along like a heads-up display in a video game he had not chosen to launch. Every time he turned his head it adjusted, which was unsettling enough that he stopped trying to look at it directly and resorted to glancing at it sideways.
 WELCOME, ANGLER. TUTORIAL AVAILABLE. [ACCEPT] [DISMISS]
 He stopped swimming about thirty yards from shore and let his feet feel for bottom. Sandy, gradual, no rocks. He stood, which put the water at his collarbone, and gave the panel his full attention for the first time.
 "Okay," he said, mostly to the lake. "Okay, sure."
@@ -28,7 +28,7 @@ She took two steps closer, then a third, and stopped about five feet away with h
 "You are seeing my face," Drew said.
 "I mean closer."
 "I — sure?"
-She closed the distance, reached up on her toes, and peered into his face from about six inches away, intently and scholarly serious about it, which should have felt invasive and somehow did not. She smelled like something herbal he didn't recognize. He held very still, partly because he had no idea what the etiquette was, and partly because he was thirty-one years old and had not been looked at this hard by a woman in longer than he could remember.
+She closed the distance, reached up on her toes, and peered into his face from about six inches away, intent and scholarly, which should have felt invasive and somehow did not. She smelled like something herbal he didn't recognize. He held very still, partly because he had no idea what the etiquette was, and partly because he was thirty-one years old and had not been looked at this hard by a woman in longer than he could remember.
 "Round pupils," she reported, apparently to herself.
 "Yep," Drew said.
 "No second eyelid."
@@ -49,7 +49,7 @@ She rocked back onto her heels and beamed, and the beam was the most alarming th
 "Apparently."
 "That's — okay. Okay. Wow." She let out a breath. "Hi."
 "Hi."
-They stood there for a beat, both equally derailed in their own ways. Drew, because everything. Mira, apparently because the human she had just stumbled into had a face. Behind her, somewhere up the path, a goat bell clanked. Of course it did.
+They stood there for a beat, both derailed. Drew, because everything. Mira, apparently because the human she had just stumbled into had a face. Behind her, somewhere up the path, a goat bell clanked. Of course it did.
 "Can I ask," he said carefully, "why I'm special. The fact that I'm a human, I mean?"
 The wide eyes went a little shy. She glanced down at the path between them, scuffed a toe.
 "I'm not — I don't really know? Like, officially. Just stuff I heard. Growing up."
@@ -123,8 +123,8 @@ The elder held his eye for a long second. Her face did something Drew couldn't r
 She turned and walked back up the lane the way she had come, without checking whether he was following. Drew followed. The crowd fell back to either side as he went, and he could feel them watching him go, especially Mira, who stood where he had left her in her cut-off overalls with her hands clasped at her bib and her red eyes wide.
 Lyselle's house was the second-to-last on the lane, set a little back from the others, with a small front garden Drew didn't have the botanical vocabulary to describe and a heavy oak door painted dark green. She held it open for him. He went in. She came in after him, closed the door, and slid a wooden bolt across it, and the bolt going home made a heavy, definite *thunk* that was, Drew thought, the first sound since he'd arrived in this place that had felt like a sound from his own world.
 "Sit," she said, without turning around. "There's a towel on the chair. Use it. I'll put on water."
-The room was a low-beamed parlor with a stone hearth at the far end, a kettle already on a hook above a small fire, two armchairs with embroidered cushions, and a low table between them. Drew sat. He used the towel. It was the softest towel he had ever touched in his life and he tried not to wreck it. He was wrecking it anyway, because he was soaked through, and the towel had not been designed for triage. Lyselle moved the kettle over the flame and pulled a small earthenware pot and two cups from a cupboard. She did all of this without speaking. Drew had been talking and being talked at without break since he had hit the path twenty minutes ago, and he found himself surprisingly grateful for the silence.
-She brought him a cup of something hot and sat down across from him.
+The room was a low-beamed parlor with a stone hearth at the far end, a kettle already on a hook above a small fire, two armchairs with embroidered cushions, and a low table between them. Drew sat. He used the towel. It was the softest towel he had ever touched in his life and he tried not to wreck it. He was wrecking it anyway, because he was soaked through, and the towel had not been designed for triage. Lyselle moved the kettle over the flame and pulled a small earthenware pot and two cups from a cupboard. She did it all without speaking. Drew had been talking and being talked at without pause since he hit the path twenty minutes ago, and he was surprisingly grateful for the silence.
+She brought him a cup of something hot and sat across from him.
 "Drink," she said, settling into the chair. "Don't ask what it is. It's safe and it'll help."
 He drank. It was not unlike strong chamomile if chamomile had a faint taste of pepper underneath it. After two sips his hands stopped shaking, which he hadn't noticed they were doing.
 "All right," Lyselle said. She set her cup on the low table between them and folded her hands in her lap. "I'm going to tell you a number of things, and most of them are going to be hard. I would like you to let me get through them before you ask questions, because if I have to stop in the middle I won't get started again, and you need to hear all of it. Can you do that?"
@@ -132,7 +132,7 @@ He drank. It was not unlike strong chamomile if chamomile had a faint taste of p
 "Good. First: you're dead."
 He looked at her.
 She held his gaze. There was no apology in it, but there was no cruelty either, and that was almost worse than either would have been. She gave him a long beat to absorb the sentence, and then she went on.
-"I don't know how it happened to you, and you don't have to tell me unless you want to. The how varies. The when varies. What doesn't vary is that men and women who arrive in this place arrived here because their lives in their own world ended. Often suddenly. Often in or near water, for our village specifically, because of what we are. The Anglers especially." She paused, watching him. "You died fishing, didn't you."
+"I don't know how it happened to you, and you don't have to tell me unless you want to. The how varies. The when varies. What doesn't vary is that men and women who arrive here do so because their lives in their own world ended. Often suddenly. Often in or near water, for our village specifically, because of what we are. The Anglers especially." She paused, watching him. "You died fishing, didn't you."
 He wanted to say no.
 He thought of the kayak, the wind, and the hair standing up on his arms as he reached for the dog.
 "Yeah," he said. "Storm. Lightning."

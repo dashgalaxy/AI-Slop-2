@@ -4,8 +4,8 @@ Banjo had been staring at the rebuilt reel for forty minutes when Kelsey finally
 "Are you working," she said, "or are you fondling fishing equipment on the clock?"
 "Both." Drew didn't look up.
 "Brett does that." She pushed the door the rest of the way open with her hip and came in. "It's why we have a sun room full of crankbaits and no spare bedroom."
-"My condolences to the spare bedroom," Drew said, easing a drag washer back into the stack with a flathead screwdriver tip.
-Drew thumbed the next washer into place and didn't look up. He'd taken the Shimano apart on his lunch break and gotten distracted by a hairline crack in the bail spring, which had led to ordering a replacement on his phone. That had led to comparing two bail springs on a forum, then reading a very strongly worded review of a third bail spring. Now it was four-fifteen on a Friday and he had a half-finished quote open in another tab. He pulled the quote forward and started typing again.
+"My condolences to the spare bedroom," Drew said, easing a drag washer back into the stack with a flathead.
+Drew thumbed the next washer into place and didn't look up. He'd taken the Shimano apart on his lunch break and gotten distracted by a hairline crack in the bail spring. He had ordered a replacement on his phone, then compared two bail springs on a forum, then read a very strongly worded review of a third. Now it was four-fifteen on a Friday and he had a half-finished quote open in another tab. He pulled the quote forward and started typing again.
 Kelsey came the rest of the way in and hopped onto the corner of his desk anyway. She'd been doing that since her second week at the company, back when Drew had still bothered to look annoyed about it. Four years on, the desk had a Kelsey-sized buff polished into the laminate.
 "You got a minute?" she said.
 "I've got however long it takes you to get to the point," Drew said, keeping his eyes on the screen.
@@ -29,7 +29,7 @@ He stopped typing. Kelsey had heard him take roughly nine hundred of these calls
 "You're a saint, Drew."
 "I'm a parts guy." He reached over and tapped the speaker button. "Tell Eric I said his beard looks dumb."
 "Will do."
-He hung up. Kelsey was watching him over the top of her phone, looking quietly satisfied, like she had just won an argument she hadn't been having out loud.
+He hung up. Kelsey was watching him over the top of her phone, quietly satisfied, like she had won a silent argument.
 "What?" Drew said.
 "You're fine when you're working."
 He typed another line of the quote. "I'm fine when I'm not working."
@@ -75,7 +75,7 @@ He caught two more inside the next forty minutes, both smaller, both released wi
 He frowned at the rod tip, then at the line. The retrieve was pulling sideways, and the kayak was slow-spinning under him on a current that didn't match the wind he'd launched into.
 He raised his head.
 The western horizon had gone the color of an old bruise, and it had done it in the time it took him to retie a leader.
-"Huh," Drew said, which was, he would think later, an embarrassingly insufficient response.
+"Huh," Drew said. Later, he would think that had been an embarrassingly insufficient response.
 He thumbed his phone awake. No bars, predictably. The launch was farther away than it had any business being. The wind that had been a polite breath at five a.m. had been quietly walking him out into open water for the better part of an hour, and he hadn't felt a thing.
 "Banjo, hey." He stowed the phone and reached for the paddle.
 Banjo's ears were already up.
@@ -93,7 +93,7 @@ Drew dug harder.
 He stopped swearing when the hair on his arms stood up.
 The air had gone strange and quietly held its breath, the way it might in the second before a door slammed in a house you thought was empty. Banjo whined once, low and confused, and turned his head to look at Drew.
 Drew had time to think *get down* and reach for the dog before everything went white.
-He didn't feel the strike. What he felt, afterward, was a ringing weightless second in which the storm, the kayak, and the lake were all gone, and he was somewhere that had no temperature or direction. He had time for exactly one clear thought, and the thought was simply *Banjo*, not himself, not Kelsey, not his ex-wife or his grandfather or any of the people he might have expected to think about at the end of a thirty-one-year run, just the dog, before the second ended.
+He didn't feel the strike. What he felt afterward was a ringing weightless second in which the storm, the kayak, and the lake were all gone, and he was somewhere that had no temperature or direction. He had time for exactly one clear thought, and it was *Banjo*. Not himself, not Kelsey, not his ex-wife or his grandfather or any of the people he might have expected at the end of a thirty-one-year run. Just the dog. Then the second ended.
 Drew was sinking through warm water that tasted faintly sweet, kicking upward toward a brightness that was the wrong color for the lake he had just left.
 He broke the surface gasping.
 The water was almost bath-warm. The sky overhead was a soft, untroubled blue that did not belong to any October he had ever stood under. He treaded water in a slow circle and tried to make his eyes agree with what they were reporting.
@@ -102,10 +102,10 @@ He was wearing his clothes. Flannel, jeans, and boots, all of it sodden and drag
 "Banjo," he called. "Bud."
 His voice came out small and sideways across the water.
 "Banjo, where are you?"
-A pair of birds lifted off the reeds on the far bank and went arrowing away. Nothing else answered. The kayak and the storm had simply stopped existing, and the lake he was treading water in was calm enough to drink from. Somewhere underneath the panic building in his chest, a much quieter voice had already begun working out that he was not going to find the dog in this water, because the dog had not come with him.
+A pair of birds lifted off the reeds on the far bank and shot away. Nothing else answered. The kayak and the storm had simply stopped existing, and the lake he was treading water in was calm enough to drink from. Somewhere underneath the panic building in his chest, a much quieter voice had already begun working out that he was not going to find the dog in this water, because the dog had not come with him.
 He swallowed twice, hard.
 A soft chime sounded inside his head.
-It was a polite chime, the kind a hotel doorbell made, or a notification from an app he had not given permission to install. A translucent blue panel unfolded itself in his peripheral vision in a clean sans-serif font he had seen on roughly four thousand video game menus across the course of his life, and it read, sounding faintly like cheerful administrative paperwork:
+It was a polite chime, the kind a hotel doorbell made, or a notification from an app he had not given permission to install. A translucent blue panel unfolded itself in his peripheral vision in a clean sans-serif font he had seen on roughly four thousand video game menus, and it read, sounding faintly like cheerful administrative paperwork:
 WELCOME, ANGLER. TUTORIAL AVAILABLE. [ACCEPT] [DISMISS]
 Drew swatted at it with one waterlogged hand.
 It did not go away.

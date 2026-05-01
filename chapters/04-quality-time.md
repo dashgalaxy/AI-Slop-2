@@ -1,8 +1,8 @@
 # Chapter 4: Quality Time
 
 The dry pants were too short.
-They were also, suspiciously, his exact waist size, which suggested either that Mira had a very good eye for inseams or that the trousers had previously belonged to a man of his build and then somehow ended up in a tackle-shop guest room in a women-only village. He would think about this later, he decided, along with the rest of the long list of things he had pushed onto a *think about it later* pile, because protecting his afternoon from any of it was a survival strategy.
-He came back into the front room in the too-short trousers, a clean linen shirt that fit better than the trousers did, and his own boots, which Mira had, sometime in the last twenty minutes, taken away from him, dried, and oiled. The boots felt like new boots, almost like the boots themselves had thanked someone. Drew was not sure what the etiquette was for thanking a woman for oiling your boots. He was going to have to figure that out too.
+They were also, suspiciously, his exact waist size, which suggested either that Mira had a very good eye for inseams or that the trousers had previously belonged to a man of his build and then somehow ended up in a tackle-shop guest room in a women-only village. He would think about this later, he decided, along with the rest of the long list he had pushed onto a *think about it later* pile. Protecting his afternoon from any of it was a survival strategy.
+He came back into the front room in the too-short trousers, a clean linen shirt that fit better than the trousers did, and his own boots, which Mira had, sometime in the last twenty minutes, taken away from him, dried, and oiled. The boots felt like new boots. Drew was not sure what the etiquette was for thanking a woman for oiling your boots. He was going to have to figure that out too.
 Mira was at a small round table in the back of the shop, already setting out plates.
 "Sit," she said, without turning around. "Eat."
 The table held a loaf of brown bread, a slab of something pale that Drew thought might be cheese, a small earthenware pot of something the color of paprika that smelled like meat and pepper, two wooden bowls, two horn cups, and a clay pitcher of what turned out to be water with a sliced lemon in it. Banjo had relocated from the stove to the table-leg the moment plates appeared, and was staring quietly up at the bread, focused like a Buddhist monk in the middle of a koan.
@@ -15,7 +15,7 @@ They both sat down at the table. She ladled out the soup, two bowls, and pushed 
 "I had a feeling." She tore a piece of bread for herself and dunked it. "Don't read into it. I have a feeling most days. Mostly it's wrong."
 "Mhm."
 He ate. The stew was good and the bread was very good. The cheese, which she pushed at him with the implicit instruction to try it, was startling, sharp, almost lemony, with a rind that crumbled like a soft pastry. He ate slowly. He had not realized until he tasted food just how empty he was, and how that emptiness had been part of the disoriented animal-brain feeling he had been navigating for the last few hours. The food settled him, and the cheese in particular performed a small miracle on his nervous system that he was unable to account for.
-Mira watched him eat, smiling the small private smile that came over a person whose food was being properly appreciated. She didn't push conversation on him. She just let him eat, which surprised him, and he was already noticing that she kept being surprising in small, easy ways. She had not been programmed to be considerate, so much as she had simply learned, somewhere along her two-and-a-third centuries, how to be in a room with a person who was tired.
+Mira watched him eat, smiling the small private smile of a cook whose food was being properly appreciated. She didn't push conversation on him. She just let him eat, which surprised him, and he was already noticing that she kept being surprising in small, easy ways. She had not been programmed to be considerate. She had simply learned, across her two-and-a-third centuries, how to be in a room with a tired person.
 A thought arrived: Tracy.
 His cousin Tracy, who had inherited Grandpa Hal's money the same week Drew had inherited the dog and the kayak, was thirty-six now, lived in Madison, and had spent her entire personality from age twenty-two onward on Switch games on the couch with a glass of wine. He had spent a Thanksgiving once, three or four years ago, watching Tracy play something Japanese with cherry blossoms and a hot bartender, and Tracy had made him sit through her explanation of the affection system. He had not been listening. He had been thinking about football. He remembered, however, the broad strokes of what she had said. *You picked a girl. You did things she liked. You answered her questions. You asked her questions. The questions were the engine. The questions opened the cutscenes. The cutscenes opened the next questions. Drew, you literally play dating sims by being interested in another person, that's the entire mechanic, that's why these games are popular with women.*
 He had not understood, at the time, why his cousin had said this with such heat.
@@ -72,7 +72,7 @@ She nodded once, mouth tipping into a small grin. "This specific cheese."
 "Thank you."
 "This cheese is —"
 "You're allowed to be quiet about it."
-He was quiet about it. He took another bite of the cheese. The portrait at the corner of his vision was beaming at him with both its hands clasped in front of its little chin. He did not look directly at it, because he had a feeling that doing so would somehow be worse for him.
+He was quiet about it. He took another bite of the cheese. The portrait at the corner of his vision was beaming at him with both its hands clasped in front of its little chin. He did not look directly at it. Looking, he suspected, would somehow be worse for him.
 The number, where he could see it, ticked from 14 to 15. Then to 16. The *Tier: Stranger* under it gave a little shimmer he did not entirely understand, and then the words *Tier: Acquaintance* slid into place underneath instead, and below them, the locked MOOD readout unlocked. It went from black-bar to soft green. The number next to it read 62. Below it, *MOOD: Pleased.*
 Mira smiled at him, with her dimples this time. The portrait did the same.
 "There you go," she said.
@@ -85,7 +85,7 @@ He sat with the unlock for a half-second longer than was strictly cool. The shop
 "You've already started doing it. We catch fish, we level by catching fish, and we get skills that let us read water, make lures, and find species. The Hollow's Anglers are, well, we're the keepers of the lake, basically. We have, I don't know, a relationship with it. The lake responds to us. There's stuff I don't fully understand about it, that the older ones know better, but. Yeah. Anglers."
 "You said you were Lv. 4. And I'm Lv. 1."
 She nodded over her bowl and waited him out.
-He set his spoon down across the rim of his bowl, the way he had been setting spoons down across rims of bowls his entire life, and looked at her.
+He set his spoon down across the rim of his bowl and looked at her.
 "Can you teach me anything?"
 She brightened so abruptly he flinched.
 "Yes," she said. "Yes, I can teach you Angler skills, you can take a teach-skill from any Angler at a higher level than you, and they take it out of your level-up roll, you get to swap a random skill for the one I teach you. I can teach you. I can absolutely teach you. Drew, will you let me teach you something?"
@@ -194,7 +194,7 @@ He laughed. It came out of him before he saw it coming, the first time he'd done
 She put her hand briefly between his shoulder blades and took it away again.
 "I know, Drew."
 He sat on her dock with a rod across his knees, a glowing blue map of a creek under his feet, a dog leaning warm against his hip, and a girl quietly delighted with herself behind his shoulder. The portrait at the corner of his vision had gone soft, watching his face. The number under it had crept up another point while he was laughing and was sitting at 42.
-He thought, for the first time, with no sarcasm in it: *this is not the worst place to land.* Immediately after, he thought: *and that is, possibly, exactly what someone would want me to think.* After a third beat, quieter: *I'm fine with both.*
+He thought, for the first time without any sarcasm: *this is not the worst place to land.* Immediately after: *and that is, possibly, exactly what someone would want me to think.* After a third beat, quieter: *I'm fine with both.*
 The chubchirp on the dock was still flopping. Banjo was watching it with a moral seriousness Drew was going to have to address eventually. Somewhere in the part of his mind that was still keeping a list of things to think about later, the *Handsome Savior* line on her opinion panel rolled over to the bottom of the list and stayed there. He would think about that later. He had decided.
 Right now he was going to fish.
 He cast.

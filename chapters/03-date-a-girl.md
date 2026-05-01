@@ -6,7 +6,7 @@ She talked about the shop, which she had taken over from her mother, who had tak
 "Okay," Mira said, fishing a small iron key out of the front pocket of her overalls. "Okay, here we are. Mind the step, it's higher than it looks. Mind the dog, he's already eaten one of my mom's needlework cushions and he's going to want to eat the other." She glanced down at Banjo as she fit the key into the lock. "Sorry, dog, I don't even know your name, I'm sorry, I'm Mira, you can keep doing what you're doing."
 Banjo, having sniffed the rocking chair cushion and apparently approved of it, was already trying to climb onto it.
 "Banjo, off," Drew said.
-Banjo dropped his butt onto the porch boards with a thud and looked up at Drew, deeply affronted, having been told no for the first time in three days and personally injured by the experience.
+Banjo dropped his butt onto the porch boards with a thud and looked up at Drew, deeply affronted, told no for the first time in three days and visibly injured by the experience.
 Mira unlocked the door and bumped it open with her hip.
 The inside of the shop smelled like wax and pine resin and, faintly, fish. The front room was narrow and tall, with a counter running the length of one wall and a forest of fishing rods racked vertically behind it. Lures hung from the rafters on lengths of twine, swaying in tiny currents Drew couldn't feel. There were jars on the shelves containing things he could not immediately classify, some of which appeared to be looking back at him. A potbelly stove sat unlit in the back corner with a kettle on top, and a doorway behind the counter led, presumably, to a back room and a stairs.
 "Sit," Mira said, gesturing at a low stool by the counter as she swept past him. "I'll put water on. Are you hungry? You look hungry. You must be starving. Are you cold? Of course you're cold." She crouched by the stove and reached for a metal bowl. "Banjo, sweetheart, there's a bowl by the stove I'll fill it, hold on."
@@ -25,7 +25,7 @@ She tilted her head. "Has anyone walked you through your interface yet?"
 "All of it. The tabs. The HUD. The whole." She waved her hands in front of her face vaguely, as if drawing a window in the air. "The whole *thing*. There's so much we have to explain to you and I want to do it right. Some of the others were going to dog-pile you on the lane and just shout instructions and I almost died, that's not how you do this."
 "There's a — how I do this?"
 "There's absolutely a how you do this. Drew." She leaned forward on the counter, elbows on her knees. "Can I show you Date-A-Girl?"
-Drew held her gaze. The beat stretched long inside his head before snapping back to its actual length of about a second.
+Drew held her gaze. The beat felt longer inside his head than it was.
 "I'm sorry," he said. "Can you show me what now?"
 "It's not — okay, it has a stupid name, I know it has a stupid name." She was already waving both hands like she was wiping the stupid name out of the air. "We've been calling it that since I was little. The actual term is the Companion HUD or sometimes the Affection Interface but everybody calls it Date-A-Girl. Even my grandma. Even the men call it Date-A-Girl, when they're talking to each other, when they think no one's listening. It's just what it's called."
 "Date-A-Girl," Drew repeated.
@@ -74,7 +74,7 @@ She wrinkled her nose at the bowl. "It's not bad. It's, um. It's higher than I e
 "Most people start at zero with a stranger."
 Drew set his mug down. "Why are we higher?"
 "I don't know!" She said it brightly, but he was a salesman, and he could hear the part of *I don't know* that meant *I have a guess.* "Maybe because you're an Angler and I'm an Angler. Maybe because I, um. I helped you up the path. There's a starter bonus for the first villager you meet, sometimes. It varies." She lifted her shoulders. "I don't know, Drew, I really don't, the system doesn't always tell us why."
-He let it sit. She was telling something almost-true and ducking the whole-true, and he had two long lifetimes of practice spotting that exact kind of duck. He let it sit because pushing on it would have made her hide, and because, frankly, the part of his brain that was supposed to be running social interrogation was currently being run by the part of his brain that was overwhelmed by the floating window with the winking portrait of his hostess.
+He let it sit. She was telling something almost-true and ducking the whole-true, and he had two long lifetimes of practice spotting that exact kind of duck. He let it sit because pushing would have made her hide, and because the part of his brain that was supposed to be running social interrogation had been overruled by the part overwhelmed by the floating window with the winking portrait of his hostess.
 "Okay," he said. "What are the locked ones?"
 "Mood, opinion, arousal, available requests. Those open up as your tier goes up." She started ticking them off on her fingers. "Stranger to Acquaintance unlocks Mood. Acquaintance to Friend unlocks Opinion. Friend to Colleague unlocks Available Requests. Colleague to Companion unlocks Arousal. Then Companion to Lover, Lover to Soulmate. Seven tiers."
 "Arousal," Drew said flatly, the way somebody might say a word he was trying to decide whether to ask follow-up questions about.
@@ -87,7 +87,7 @@ She crossed her arms. "It's physics, it's not weird."
 "You'll get used to it."
 "I might not."
 She grinned. "You will, but I admire your conviction."
-She was beaming again. The portrait at the corner of his vision was doing some kind of small dance now, possibly a curtsey, he was not going to look directly at it. The kettle on the stove was starting to whistle. Banjo, who had been mostly asleep, raised his head, considered the situation, and concluded the situation did not require his intervention.
+She was beaming again. The portrait at the corner of his vision was doing some kind of small dance now, possibly a curtsey. He chose not to look directly at it. The kettle on the stove was starting to whistle. Banjo, who had been mostly asleep, raised his head, considered the situation, and concluded the situation did not require his intervention.
 "Mira, you said you're twenty-two."
 "Yeah."
 "How long have you been twenty-two?"
@@ -116,7 +116,7 @@ She straightened up off her elbows.
 "Of *us*, dummy. Of the village. Of — okay, look, I don't actually know what it means in the grand sense. None of us do. There's a slot in the village's ledger and it has the words *Main Protagonist* on it, and the slot has been empty since the village was founded, which was a long time before I was born, and which my mom and my grandma and her grandma were all already alive for. We have been waiting. The whole village. Forever. You're the first."
 "The first."
 "The first ever." She was counting on her fingers again, then gave up and just held both hands out flat. "Travelers come and go, sometimes. People who pass through and leave. The Main slot is for the one who arrives, stays, and tends the lake. *That* one's been empty. That's the slot you walked into."
-She had her arms wrapped around her knees on the counter at some point during this part of the conversation. He had not noticed when she had wrapped them.
+Somewhere in this part of the conversation she had pulled her knees up to her chest on the counter. He had not noticed when.
 "Mira, that is — that is a lot of waiting."
 "You have no idea." She shook her head once and then, as if she'd caught herself getting heavy, snapped back into brightness. "Anyway! That's the big stuff. You'll learn the rest as you go. Do you want to test the HUD?"
 "Test it."
@@ -251,7 +251,7 @@ He looked at her.
 "Yeah, it's ridiculous." She uncrossed her arms and scrubbed a hand through her short black hair, and the portrait at the corner of his vision did the same gesture in the same instant, and Drew gave up trying to look at one without seeing the other. "It's been ridiculous for two hundred and thirty years, Drew. It's been ridiculous since before my grandma's grandma. You're the first person who's gotten to see it from the outside in a really long time, and you're sitting here calling it ridiculous, and you know what, you're absolutely right, but —" She grinned at him. "— it's *our* ridiculous, and we're really glad you're here, and if you stop calling it ridiculous for, like, ten minutes, I'll show you the upstairs guest room, and if you're nice I'll show you my mom's old fishing journal, because I think you need to see it, and also because I want to see your face when you read it."
 "What's in the journal?"
 "None of your business until you've eaten something and put on dry pants." She was already turning toward the back room. "Dry pants, Drew."
-She was already moving for the back room. The portrait at the corner of his vision waved at him as she went, a little curtsey-wave, before it drifted with her out of his immediate field of view and parked itself politely off to the side, where it would be ready for him the next time he wanted it.
+The portrait at the corner of his vision waved at him as she went, a little curtsey-wave, before it drifted with her out of his immediate field of view and parked itself politely off to the side, ready for him the next time he wanted it.
 Drew sat on his stool.
 The kettle on the stove had stopped whistling and started cooling, and Banjo was asleep again. The shop smelled like wax and pine and faintly of fish, the lures were swaying in the rafters, and a girl who had been twenty-two for two hundred and thirty years was banging around in a back room looking for trousers that would fit him. Somewhere outside the shop, the village he had been the Main Protagonist of for less than half a day was going about its afternoon. The floating winking portrait of the girl in the back room sat patiently at the edge of his sight, ready to tell him, in numerical form, exactly how much she liked him.
 There was a *who* under all of this, and a *why*, and he was going to find them eventually. Right now, though, he was going to put on dry pants.
