@@ -21,7 +21,7 @@ She crossed the floor in three strides, wrapped both arms around his waist, and 
 **STATUS:** Energy Drain Recovery (est. 3–5h remaining)
 “You smell like creek water and decisions,” she mumbled into his shirt. “And fish. Mostly decisions.”
 “I made a lot of them this morning.”
-“I noticed.” She pulled back just enough to look up at him, still smiling, ears twitching once. “The note said you read the whole Available Requests list.”
+“I noticed.” She pulled back just enough to look up at him, still smiling. Her ears twitched once. “The note said you read the whole Available Requests list.”
 “I did.”
 She rose on her toes, pressed a quick, sleepy kiss to the corner of his mouth, and the panel ticked.
 **AFFECTION 87 → 89**
@@ -103,7 +103,7 @@ The panel ticked upward in frantic little bursts.
 **AFFECTION MAX**
 **MOOD: Desperate — 88 → 91**
 **AROUSAL: MAX — Overwhelmed**
-She took him deeper, cheeks hollowing, eyes watering slightly as she forced herself down until the head of his cock nudged the back of her throat. At the same time she fucked herself faster with the rod, the wet sounds growing louder, messier. Her thighs trembled. A thin trail of her own slick ran down the inside of one leg and dripped onto the floorboards.
+She took him deeper. Her cheeks hollowed and her eyes watered slightly as she forced herself down until the head of his cock nudged the back of her throat. At the same time she fucked herself faster with the rod, the wet sounds growing louder, messier. Her thighs trembled. A thin trail of her own slick ran down the inside of one leg and dripped onto the floorboards.
 Drew’s balls tightened. He was close, *too* close. The sheer absurdity of it hit him like a freight train: he was getting blown in the middle of a bait shop by a two-hundred-and-thirty-year-old half-elf who was simultaneously fucking herself with a fishing rod because he had told her to. A month ago he had been a divorced thirty-one-year-old from Wisconsin who couldn’t even change the preset on his truck radio. Today the system had handed him a personal fuckdoll with a built-in HUD that tracked exactly how much she liked being used.
 The questions tried to surface again, *how far does this go, what happens when the mood bar finally drops for real, is any of this actually her or is it all just system compliance dressed up as affection*, but the lust was louder and hotter, and he wanted to push, wanted to see the absolute limit of what Lover tier would let him get away with.
 He pulled out of her mouth with a wet pop, cock shiny with spit. Mira gasped for air, lips swollen, but she kept the rod moving inside herself without being told.
@@ -111,7 +111,7 @@ He pulled out of her mouth with a wet pop, cock shiny with spit. Mira gasped for
 Mira’s eyes went wide for a split second, and then she smiled, that same bright, willing, slightly wicked smile. She pulled the rod out of her pussy with a soft, wet sound, set it aside, and stood up on shaky legs. Completely bare, cum and spit still glistening on her chin, she walked straight out the back door onto the deck without a single word of protest.
 Drew followed, cock still hard and aching, heart hammering.
 The afternoon was warm on the wooden planks. The creek curved green and slow beneath the pilings. Across the water, the far bank and the southern edge of the village lane were visible through the trees, close enough that anyone who happened to glance this way would see everything. No one was out at the moment, and the lane was quiet, but the *possibility* was there, and so were the risk and the exhibitionism.
-Mira didn’t hesitate. She dropped to her hands and knees right on the edge of the dock, ass up, back arched, short black hair falling forward. Her pussy was visibly swollen and dripping, lips parted, a thin strand of slick hanging from her clit. She looked back over her shoulder at him, red eyes bright, ears twitching, and gave a small, eager nod.
+Mira didn’t hesitate. She dropped to her hands and knees right on the edge of the dock, with her ass up, her back arched, and her short black hair falling forward. Her pussy was visibly swollen and dripping, the lips parted around a thin strand of slick hanging from her clit. She looked back over her shoulder at him, her red eyes bright and her ears twitching, and gave a small, eager nod.
 “I’m ready,” she said simply.
 Drew knelt behind her, lined up, and shoved his cock into her in one long, hard thrust.
 Mira cried out, loud enough that the sound carried across the water. Her pussy clamped down around him like a fist, hot and velvety and still fluttering from the rod. He bottomed out with a groan, balls pressed against her ass, and started fucking her hard.
@@ -175,7 +175,7 @@ Mira moved around the kitchen with easy confidence, lighting the small stove, pu
 Mira paused mid-motion, glanced over her shoulder at him with a knowing little smirk, and obeyed. She turned, braced one hand on the counter, and arched her back slightly, presenting herself. The panel updated immediately.
 “Like this?” she asked, voice teasing.
 “Exactly like that.”
-She stayed that way while she finished chopping the herbs, ass up, legs slightly apart, letting him look his fill. When she was done she straightened, walked over, and climbed into his lap on the stool without being asked, straddling him, arms looping around his neck, still naked and warm and damp from the creek.
+She stayed that way while she finished chopping the herbs, her ass up, her legs slightly apart, letting him look his fill. When she was done she straightened, walked over, and climbed into his lap on the stool without being asked. She straddled him, looping her arms around his neck, still naked and warm and damp from the creek.
 “You’re going to be insufferable now that you know how far Lover tier lets you push,” she murmured against his mouth.
 “Probably.”
 “I’m okay with that.” She rocked her hips once, deliberately, grinding against the growing bulge in his pants. “Just remember the mood bar is your friend. And my friend. And if it starts dropping too fast, you back off. Deal?”

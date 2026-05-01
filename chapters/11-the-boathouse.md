@@ -63,10 +63,10 @@ They looked at him the way two women look at a man when they have, between them,
 "I do not technically have furniture yet."
 "Your bed is upstairs," Lyselle continued, "but it does not have sheets, pillows, or a frame, just a mattress on the floor that Branwen had her cousin deliver this afternoon."
 "Yes," Drew said.
-"Mira and I have, between us, brought enough sheets and enough pillows for the bed."
+She tipped the rim of her cup an inch toward Mira. "Mira and I have, between us, brought enough sheets and enough pillows for the bed."
 "Have you," Drew said.
 "We have."
-"That was thoughtful of you," Drew said carefully.
+He took a careful step into the room. "That was thoughtful of you."
 "It was practical of us, dear."
 Mira, at the sink, did not look up from the cup she was rinsing, but she was smiling, and her portrait at the corner of his vision was smiling slightly more obviously. The number on her panel, which had been parked at 99 since the second dance, ticked, on its own, to 100. The *Tier: Lover* under it shimmered, gave a tiny dissolve, and steadied at the cap, right at the gate of Soulmate, waiting.
 Drew said nothing.

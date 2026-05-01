@@ -61,10 +61,10 @@ Lyselle did not interrupt. When he was done, she set her teacup down. She did no
 "I don't — I don't know," Drew said. "It walked back the way it came. Through a piece of the meadow that wasn't meadow."
 "Was the piece in any direction you would call a direction?" she asked.
 "No."
-"Was it toward the river?" Lyselle asked.
+She set the teacup aside. "Was it toward the river?"
 "No."
 "Was it toward the village?" she pressed.
-"No," Drew said.
+Drew shook his head. "No."
 "Was it past where letters could follow you, Drew?"
 He stopped.
 He looked at her over the low table. The teacup between them was sending up a thin ribbon of steam.

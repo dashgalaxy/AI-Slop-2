@@ -142,15 +142,15 @@ Drew shook his head. "Right, sure, but did you feel — did the system. Did it t
 He raised his hand again, then paused. A lifetime of social training had taught him not to put his hand on women's heads without permission, but he was apparently in a video game now, and Mira was leaning very slightly forward like a woman who was not, on balance, opposed to where his hand was going.
 He patted her head.
 The number went from 9 to 11. The locked MOOD readout flared briefly with a small upward arrow before going dark again. The locked AROUSAL readout, even though it was locked, did something he couldn't quite see, a flicker at its edge, a pulse, a hint of color where there had been only black before. The portrait beamed at him. The actual Mira, two inches under his hand, beamed up at him at the exact same time, in the exact same way, and for a half-second Drew couldn't tell which one he was looking at.
-"That was a good one," Mira reported, eyes closed.
+"That was a good one," Mira said quietly, her eyes still closed.
 "Was it?"
 "Definitely a good one."
-"Your locked tab. The arousal one. It did. Something."
+Drew watched the panel. "Your locked tab. The arousal one. It did. Something."
 "Oh." She opened her eyes and blinked. "Oh, did it? You can sometimes see flickers through the lock. That's a — that's a high-affinity reading, technically. Not nothing. That's, um. Yeah. That's interesting."
 "Don't be weird about it."
 "I'm not. You said that earlier. I'm not."
 "You're being a little weird about it."
-"I'm being a normal amount of weird about it given the circumstances."
+She crossed her arms in mock-offense. "I'm being a normal amount of weird about it given the circumstances."
 "Fair. Keep going. What else."
 He took his hand off her head and put both hands in his back pockets, partly to keep them out of trouble and partly to give himself a beat.
 "What happens when I, like, formally pick somebody. To — to date. You said affection levels up, you said it goes Stranger up to whatever. What happens at the top?"
@@ -164,11 +164,11 @@ He took his hand off her head and put both hands in his back pockets, partly to 
 He stopped.
 She was looking at him with her head cocked sideways and her eyebrows pulled together, genuinely confused, missing a word in the conversation and not pretending to.
 "You pick one," he said carefully. "You pick one girl. That's how it goes. You date her. You're exclusive with her. You don't, you know. You don't have other ones."
-"Why not?"
+"Why not?" she asked, head still tilted.
 "Because that's. Because that's how dating works."
 "Where you're from?"
 "Where I'm — yeah. Where I'm from. Most places?"
-"That sounds terrible."
+She wrinkled her nose. "That sounds terrible."
 "It's not — Mira, it's not terrible. It's how — okay, look." He shifted his weight. "Where I'm from, you get to know somebody, you decide you like them, you decide they like you, and you commit to each other. One person. That's it. That's the goal. You build your life around that one person."
 "For how long?"
 "For — for life, ideally. Until one of you dies."
@@ -229,15 +229,15 @@ It was a very mild smack, more a man checking what the bumpers were made of than
 The actual Mira, also, crossed her actual arms. Her butt, where his hand had landed, jiggled once and then was still.
 "*Hey*," she said. "Wow, Drew, what, you didn't even — you said you were going to *ask* — what was that for?"
 "Curiosity," Drew said.
-"*Curiosity.*"
+"*Curiosity.*" Her eyebrows went all the way up.
 "Sorry."
 "You don't sound sorry."
-"I'm sorry-ish. I wanted to see what happened."
+He shrugged, palms up. "I'm sorry-ish. I wanted to see what happened."
 "I'm crossed-arms upset."
 "You are very visibly crossed-arms upset."
 "My affection went down."
-"It did."
-"You know what I like already?"
+"It did," he agreed, watching the panel.
+She tipped her chin at him. "You know what I like already?"
 "I have a guess."
 "Well?"
 He patted her on the head.
