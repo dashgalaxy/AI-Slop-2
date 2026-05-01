@@ -15,7 +15,7 @@ The village laughed.
 The cat purred against Drew's neck. He took the key from Branwen.
 He opened the door.
 The boathouse was, as boathouses went, beautifully empty. The crowd flooded in. Pip set candles on every flat surface within reaching distance and lit them in the same moment, which was, Drew assumed, a chandler trick. Vesha brought a pot of stew and put it on the new hearth, which Branwen had laid the fire in already, and the stew began to do its work. Tessa and Little Tess unrolled a runner on the front-room floor that they had, between them, evidently spent some part of the last month making, and which was a long quiet pattern of fish and reeds in green and brown that brought the room together immediately. Ophelia produced a pitcher of something cold that smelled of mint. Hazel brought him a second beard ribbon to match the first and slipped behind Vesha before he could thank her. Iri came in last, set a small wooden box of chocolates on the mantel, made eye contact with Drew, and said, "For you, Halloran. Not for Lyselle." She walked back out without further comment.
-Lyselle had been watching this. She looked at Drew like a woman being publicly out-thoughtfulled by a younger woman and choosing, on balance, to be pleased about it.
+Lyselle had been watching this. She gave Drew a look that suggested she was being publicly out-thoughtfulled by a younger woman and choosing, on balance, to be pleased about it.
 "Iri got the better gift," Lyselle said.
 Drew noticed that she had not taken her eyes off the small wooden box on the mantel since Iri had set it there.
 "You will not be left empty-handed," Drew said.

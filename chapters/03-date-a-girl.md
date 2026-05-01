@@ -139,7 +139,7 @@ Drew shook his head. "Right, sure, but did you feel — did the system. Did it t
 "A thermometer."
 "A thermometer."
 "That. Okay. Sure."
-He raised his hand again, then paused. A lifetime of social training had taught him not to put his hand on women's heads without permission, but he was apparently in a video game now, and Mira was leaning very slightly forward like a woman who was not, on balance, opposed to where his hand was going.
+He raised his hand again, then paused. A lifetime of social training had taught him not to put his hand on women's heads without permission, but he was apparently in a video game now, and Mira was leaning very slightly forward, not, on balance, opposed to where his hand was going.
 He patted her head.
 The number went from 9 to 11. The locked MOOD readout flared briefly with a small upward arrow before going dark again. The locked AROUSAL readout, even though it was locked, did something he couldn't quite see, a flicker at its edge, a pulse, a hint of color where there had been only black before. The portrait beamed at him. The actual Mira, two inches under his hand, beamed up at him at the exact same time, in the exact same way, and for a half-second Drew couldn't tell which one he was looking at.
 "That was a good one," Mira said quietly, her eyes still closed.
@@ -183,7 +183,7 @@ He had been standing for the last part of this conversation. He turned now and w
 He had been turning a wooden bait-jar in his hand without remembering picking it up. He set it back on the counter.
 "Who came up with this?"
 She stopped.
-She had been looking at him patiently, amused, like a woman explaining tap water to a man from a country with no tap water. Now she stopped, and her face went very still, and the portrait at the corner of his vision stopped doing whatever cute thing it had been doing, and for a second Drew could hear the kettle on the stove and Banjo's slow breathing and nothing else.
+She had been looking at him patiently and amused, like somebody explaining tap water to a man from a country with no tap water. Now she stopped, and her face went very still, and the portrait at the corner of his vision stopped doing whatever cute thing it had been doing, and for a second Drew could hear the kettle on the stove and Banjo's slow breathing and nothing else.
 "That," Mira said, very quietly, "is actually a really good question."
 "Yeah?"
 "Yeah."

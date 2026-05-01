@@ -81,7 +81,7 @@ Mira squeezed his elbow once, briefly, in what he was going to choose to interpr
 "Hi Hazel," Drew said, raising a hand toward the back of the crowd, where a green hand briefly raised back and then slipped behind a taller girl.
 The questions came in a wave.
 A girl with long fox ears and a tail the color of an autumn leaf, who Drew thought was Vesha but possibly Iri since he hadn't retained the names, wanted to know if it was true that humans couldn't smell anything farther than two arm-lengths away. The catgirl, whose pale gray hair stuck up in a startled-looking shock, was giving him the most disconcertingly direct stare he had ever fielded outside a job interview, and she asked without preamble how tall he was. Then a short, brown-skinned girl with greenish undertones, two small upward-pointing tusks, and a mass of black braids reached up and said, "Can I touch your beard," already touching his beard.
-"Sure," Drew said, after the fact. The braided girl had to be Hazel, because everyone else had been delighted by the whole concept of him while Hazel looked like a person who was dying inside about how forward she was being, which she was being anyway, and which, given the demonstrated forwardness of the room, was saying something.
+"Sure," Drew said, after the fact. The braided girl had to be Hazel, because everyone else had been delighted by the whole concept of him while Hazel looked like she was dying inside about how forward she was being, which she was being anyway, and which, given the demonstrated forwardness of the room, was saying something.
 "It's so coarse," Hazel breathed, fingers still moving along his jaw.
 "That's just stubble," Drew said. "I missed two days."
 "I want one."
